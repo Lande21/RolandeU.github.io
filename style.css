@@ -3,12 +3,13 @@ body {
     margin: 0;
     padding: 0;
     box-sizing: border-box;
+    background-color: #ffffff;
 }
 
 header {
     text-align: center;
     padding: 50px 0;
-    background-color: #1c5db2;
+    background-color: #000000;
     color: #fff;
 }
 
@@ -20,7 +21,9 @@ nav ul {
     list-style: none;
     padding: 0;
     text-align: center;
-    background-color: #444;
+    height: 25px;
+    padding-top: -10;
+    background-color: #000000;
 }
 
 nav li {
@@ -42,12 +45,27 @@ nav a:hover {
 section {
     padding: 50px 0;
 }
-
+.myphoto{
+    height: 420px;
+    width: 350px;
+    float: left;
+    margin-right: 20px;
+}
 .container {
     width: 80%;
     margin: 0 auto;
+    overflow: hidden;
 }
 .project {
+    margin-bottom: 30px;
+    overflow: hidden;
+    border: 1px solid #ddd;
+    border-radius: 5px;
+    height: 100%;
+    width: 300px;
+    transition: transform 0.3s ease-in-out;
+}
+.projecttwo{
     margin-bottom: 30px;
     overflow: hidden;
     border: 1px solid #ddd;
