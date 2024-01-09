@@ -61,6 +61,11 @@ section {
     margin: 0 auto;
     overflow: hidden;
 }
+.container p {
+    height: 100px;
+    width: 70%;
+    padding: 20px;
+}
 .project {
     display: inline-block;
     vertical-align: top;
