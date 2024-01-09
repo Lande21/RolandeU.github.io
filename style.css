@@ -16,6 +16,10 @@ header {
 header h1 {
     margin: 0;
 }
+header p {
+    margin: 2;
+    font-family: cursive;
+}
 
 nav ul {
     list-style: none;
