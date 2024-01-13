@@ -26,7 +26,7 @@ nav ul {
     text-align: center;
     height: 28px;
     padding-top: 20;
-    background-color: #504e4e;
+    background-color: #621a1a;
     font-family:Cambria, Cochin, Georgia, Times, 'Times New Roman', serif;
     font-size:large;
 }
@@ -45,6 +45,7 @@ nav a {
 }
 nav a:hover {
     color: #ff8c00; /* Change to your desired hover color */
+    background-color: aqua;
 }
 
 section {
