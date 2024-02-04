@@ -1,4 +1,10 @@
 Leet code that I have solved 
 RU
 
-1. 
+1. Num, Merge sorted array (88)
+ for i in range(m,m+n):
+            nums1[i]= nums2[i-m]
+
+        nums1.sort()
+
+2. 
