@@ -3,13 +3,13 @@ body {
     margin: 0;
     padding: 0;
     box-sizing: border-box;
-    background-color: #9b6728;
+    background-color: #ffffff;
 }
 
 header {
     text-align: center;
     padding: 50px 0;
-    background-color: #000000;
+    background-color: #561515;
     color: #fff;
 }
 
@@ -38,7 +38,7 @@ nav li {
 
 nav a {
     text-decoration: none;
-    color: #d4cdcd;
+    color: #ffffff;
     font-weight: bold;
     transition: color 0.3s ease-in-out;
     font-size: larger;
