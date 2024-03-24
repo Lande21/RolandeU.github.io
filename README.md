@@ -14,3 +14,4 @@ My daily Routine:
 - Order lyft for work
 - Get to work and give my all in
 - Get back and have /made dinner
+- Wash dishes , Read 30 pages and commit
