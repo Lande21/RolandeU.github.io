@@ -6,4 +6,5 @@ Date: Saturday, 23rd March
 My daily Routine:
 - Wake up 
 - Pray
-- drink some water
+- Drink some water
+- Take a shower and brush my teeth
