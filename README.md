@@ -8,3 +8,4 @@ My daily Routine:
 - Pray
 - Drink some water
 - Take a shower and brush my teeth
+- Guasha my face and apply moisturizer 
