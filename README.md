@@ -11,4 +11,6 @@ My daily Routine:
 - Guasha my face and apply moisturizer 
 - Pack my speaker and my lunch and water
 - Make breakfast 
-
+- Order lyft for work
+- Get to work and give my all in
+- Get back and have /made dinner
