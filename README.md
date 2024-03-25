@@ -8,7 +8,7 @@ My daily Routine:
 - Woke up 10am
 - Pray and had some H2O
 - Drink some water
-- Take a shower and brush my teeth
+- Checked WhatsApp and brushed my teeth
 - Guasha my face and apply moisturizer 
 - Pack my speaker and my lunch and water
 - Make breakfast 
