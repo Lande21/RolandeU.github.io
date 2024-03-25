@@ -5,7 +5,7 @@ Date: Sunday, 24rd March
 Occasion: HAPPY PALM SUNDAY
 
 My daily Routine:
-- Wake up 
+- Woke up 10am
 - Pray
 - Drink some water
 - Take a shower and brush my teeth
