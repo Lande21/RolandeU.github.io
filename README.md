@@ -14,5 +14,5 @@ My daily Routine:
 - Make breakfast/lunch of Chapati and umureti 
 - LC took me to go to work
 - Get to work and give my all in I did zone, Freight z rack and 3 domestic u-bots
-- Get back and have /made dinner
+- Get back and have /LC made dinner
 - Wash dishes , Read 30 pages and commit
