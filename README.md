@@ -9,8 +9,8 @@ My daily Routine:
 - Pray and had some H2O
 - Drink some water
 - Checked WhatsApp and brushed my teeth
-- Guasha my face and apply moisturizer 
-- Pack my speaker and my lunch and water
+- Guasha my face and applyed moisturizer 
+- i didnt psck anything i took water
 - Make breakfast 
 - Order lyft for work
 - Get to work and give my all in
