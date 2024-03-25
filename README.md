@@ -1,7 +1,8 @@
 # RolandeU.github.io
 A portfolio GitHub webpage with my resume
 
-Date: Saturday, 24rd March
+Date: Sunday, 24rd March
+Occasion: HAPPY PALM SUNDAY
 
 My daily Routine:
 - Wake up 
