@@ -6,7 +6,7 @@ Occasion: HAPPY PALM SUNDAY
 
 My daily Routine:
 - Woke up 10am
-- Pray
+- Pray and had some H2O
 - Drink some water
 - Take a shower and brush my teeth
 - Guasha my face and apply moisturizer 
