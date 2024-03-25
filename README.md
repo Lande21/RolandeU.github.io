@@ -12,7 +12,7 @@ My daily Routine:
 - Guasha my face and applyed moisturizer 
 - i didnt psck anything i took water
 - Make breakfast/lunch of Chapati and umureti 
-- Order lyft for work
+- LC took me to go to work
 - Get to work and give my all in
 - Get back and have /made dinner
 - Wash dishes , Read 30 pages and commit
