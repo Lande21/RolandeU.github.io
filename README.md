@@ -11,7 +11,7 @@ My daily Routine:
 - Checked WhatsApp and brushed my teeth
 - Guasha my face and applyed moisturizer 
 - i didnt psck anything i took water
-- Make breakfast 
+- Make breakfast/lunch of Chapati and umureti 
 - Order lyft for work
 - Get to work and give my all in
 - Get back and have /made dinner
