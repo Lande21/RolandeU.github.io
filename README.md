@@ -15,4 +15,5 @@ My daily Routine:
 - I took Lyft and LC picked me up from work
 - Get to work and give my all in I did zone, Freight z rack and tech, PF and check lanes
 - Get back and have /LC made dinner
+[ i had a rude attitude guest on the texh call today who almost made me lose it]
 - Wash dishes , Read 30 pages and commit
