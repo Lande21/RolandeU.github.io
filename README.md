@@ -11,7 +11,7 @@ My daily Routine:
 - Checked WhatsApp and brushed my teeth
 - Guasha my face for a minute and applyed moisturizer 
 - i did pack shrimp pasta anything i took water
-- Make breakfast/lunch of Chapati and umureti 
+- Make breakfast/lunch of Oatmeal and blueberries and bananas 
 - LC took me to go to work
 - Get to work and give my all in I did zone, Freight z rack and 3 domestic u-bots
 - Get back and have /LC made dinner
