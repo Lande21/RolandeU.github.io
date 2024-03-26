@@ -12,7 +12,7 @@ My daily Routine:
 - Guasha my face for a minute and applyed moisturizer 
 - i did pack shrimp pasta anything i took water
 - Make breakfast/lunch of Oatmeal and blueberries and bananas 
-- LC took me to go to work
+- I took Lyft and LC picked me up from work
 - Get to work and give my all in I did zone, Freight z rack and 3 domestic u-bots
 - Get back and have /LC made dinner
 - Wash dishes , Read 30 pages and commit
