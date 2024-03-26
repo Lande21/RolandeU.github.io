@@ -7,7 +7,7 @@ Occasion: HAPPY PALM SUNDAY
 My daily Routine:
 - Woke up 7:56am
 - Pray and had some H2O
-- Drink some water
+- Drink some water, Made the bed, and went to pee
 - Checked WhatsApp and brushed my teeth
 - Guasha my face and applyed moisturizer 
 - i didnt psck anything i took water
