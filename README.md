@@ -11,7 +11,7 @@ My daily Routine:
 - Checked WhatsApp and brushed my teeth
 - Guasha my face for a minute and applyed moisturizer , did Laundry
 - i didnt go to work today i took water
-- Make breakfast/lunch of Bread, avocado  and omelette and bananas 
+- Make breakfast/lunch of Bread, avocado  and omelette and orange 
 - I took Lyft and LC picked me up from work
 - Get to work and give my all in I did zone, Freight z rack and tech, PF and check lanes
 - Get back and have /LC made dinner
