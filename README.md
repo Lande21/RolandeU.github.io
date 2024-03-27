@@ -5,11 +5,11 @@ Date: Tuesday, 26th March, 2024
 Occasion: HAPPY PALM SUNDAY
 
 My daily Routine:
-- Woke up 7:56am
+- Woke up 9:16am
 - Pray and had some H2O
 - Drink some water, Made the bed, and went to pee
 - Checked WhatsApp and brushed my teeth
-- Guasha my face for a minute and applyed moisturizer 
+- Guasha my face for a minute and applyed moisturizer , did Laundry
 - i did pack shrimp pasta anything i took water
 - Make breakfast/lunch of Oatmeal and blueberries and bananas 
 - I took Lyft and LC picked me up from work
