@@ -10,8 +10,8 @@ My daily Routine:
 - Drink some water, Made the bed, and went to pee
 - Checked WhatsApp and brushed my teeth
 - Guasha my face for a minute and applyed moisturizer , did Laundry
-- i did pack shrimp pasta anything i took water
-- Make breakfast/lunch of Oatmeal and blueberries and bananas 
+- i didnt go to work today i took water
+- Make breakfast/lunch of Bread, avocado  and omelette and bananas 
 - I took Lyft and LC picked me up from work
 - Get to work and give my all in I did zone, Freight z rack and tech, PF and check lanes
 - Get back and have /LC made dinner
