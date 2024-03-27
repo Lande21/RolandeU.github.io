@@ -1,3 +1,4 @@
+
 # RolandeU.github.io
 A portfolio GitHub webpage with my resume
 
@@ -14,6 +15,7 @@ My daily Routine:
 - Make breakfast/lunch of Bread, avocado  and omelette and orange 
 - It was a snow blizzard today and i stayed inside
 - i talked to my mon and helped sist delete snap chat and i spoke to Rosy
+- I made dinner , chicken pot recipe and biscuits 
 - Get to work and give my all in I did zone, Freight z rack and tech, PF and check lanes
 - Get back and have /LC made dinner
 [ i had a rude attitude guest on the texh call today who almost made me lose it]
