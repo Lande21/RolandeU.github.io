@@ -21,4 +21,4 @@ My daily Routine:
 - Get back and have /LC made dinner, ibijumba with soup i made the other day
 [ i had a rude attitude guest on the texh call today who almost made me lose it]
 - Wash dishes , Read 30 pages and commit
-- i forgot to commit yesterday 
+- i forgot to commit yesterday and i feel bad
