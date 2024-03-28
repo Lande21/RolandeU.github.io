@@ -2,11 +2,11 @@
 # RolandeU.github.io
 A portfolio GitHub webpage with my resume
 
-Date: Tuesday, 2726th March, 2024
+Date: Tuesday, 27 March, 2024
 Occasion: HAPPY PALM SUNDAY
 
 My daily Routine:
-- Woke up 9:16am
+- Woke up 8:05 am
 - Pray and had some H2O
 - Drink some water, Made the bed, and went to pee
 - Checked WhatsApp and brushed my teeth
