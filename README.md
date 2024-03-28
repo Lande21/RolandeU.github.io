@@ -18,6 +18,6 @@ My daily Routine:
 - I made dinner , chicken pot recipe and biscuits 
 - i washed my hair and straightened it and We are watching lakers and Bucks
 - Get to work and give my all in I did zone, Freight z rack and tech, PF and check lanes
-- Get back and have /LC made dinner
+- Get back and have /LC made dinner, ibijumba with soup i made the other day
 [ i had a rude attitude guest on the texh call today who almost made me lose it]
 - Wash dishes , Read 30 pages and commit
