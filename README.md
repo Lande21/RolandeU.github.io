@@ -11,7 +11,7 @@ My daily Routine:
 - Drink some water, Made the bed, and went to pee
 - Checked WhatsApp and brushed my teeth
 - Guasha my face for a minute and applyed moisturizer , did Laundry
-- i didnt go to work today i took water
+- i went go to work yesterday i took water
 - Make breakfast/lunch of Bread, avocado  and omelette and orange 
 - It was a snow blizzard today and i stayed inside
 - i talked to my mon and helped sist delete snap chat and i spoke to Rosy
