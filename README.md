@@ -3,7 +3,7 @@
 A portfolio GitHub webpage with my resume
 
 Date: Tuesday, 27 March, 2024
-Occasion: HAPPY PALM SUNDAY
+Occasion: SAINT WEDNESDAY 
 
 My daily Routine:
 - Woke up 8:05 am
