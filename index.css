@@ -59,3 +59,10 @@ section.services i {
     align-items: center;
     justify-content: center;
 }
+
+section .card {
+    border: 2px solid #000000;
+    box-shadow: 4px 4px #000000;
+    max-width: 22rem;
+    margin-inline: auto;
+}
