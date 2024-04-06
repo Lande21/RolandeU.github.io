@@ -64,13 +64,28 @@ section.services i {
     justify-content: center;
 }
 
-section .card {
+section .card,
+.btn-outline-dark {
     border: 2px solid #000000;
     box-shadow: 4px 4px #000000;
+}
+
+.btn-outline-dark:hover {
+    box-shadow: 4px 4px #1093d1;
+}
+section .card {
     max-width: 22rem;
     margin-inline: auto;
 }
-
+/* PROJECTS */
+section.projects .card {
+    max-width: 17rem;
+    text-align: left;
+}
+section.projects .card img {
+    max-width: 70%;
+    margin: 1rem auto;
+}
 /* ABOUT */
 @media screen and (min-width:1024px) {
     section.about .container {
@@ -78,3 +93,4 @@ section .card {
     }
     
 }
+
