@@ -88,6 +88,7 @@ section.services i {
     display: flex;
     align-items: center;
     justify-content: center;
+    background-color: var(--accent-color);
 }
 
 
@@ -121,6 +122,8 @@ section.testimonial .carousel-control-prev,
 
 section.testimonial .carousel-item p {
     max-width: 80%;
+    border-left: 5px solid var(--accent-color);
+    padding-left: 1rem;
 }
 section.testimonial .carousel-item {
     display: flex;
