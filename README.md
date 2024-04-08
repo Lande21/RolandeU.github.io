@@ -7,13 +7,12 @@ Date: Sunday, April 7, 2024
 Occasion: DIVINE SUNDAY, JESUS I TRUST IN YOU! 
 
 My daily Routine:
-- Woke up 8:05 am
+- Woke up 9:05 am
 - Pray and had some H2O
 - Drink some water, Made the bed, and went to pee
-- Checked WhatsApp and brushed my teeth
-- Guasha my face for a minute and applyed moisturizer , did Laundry
-- i went go to work yesterday i took water
-- Make breakfast/lunch of Bread, avocado  and omelette and orange 
+- Checked WhatsApp and brushed my teeth and showered
+- Guasha my face for a minute and applyed moisturizer
+- I made crepes for brunch
 - It was a snow blizzard today and i stayed inside
 - i talked to my mom and helped sist delete snap chat and i spoke to Rosy
 - I made dinner , chicken pot recipe and biscuits 
