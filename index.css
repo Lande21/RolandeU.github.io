@@ -102,7 +102,7 @@ section.projects .card {
     text-align: left;
 }
 section.projects .card img {
-    max-width: 70%;
+    max-width: 50%;
     margin: 1rem auto;
 }
 /* ABOUT */
