@@ -2,8 +2,9 @@
 # RolandeU.github.io
 A portfolio GitHub webpage with my resume
 
-Date: Tuesday, 27 March, 2024
-Occasion: SAINT WEDNESDAY 
+Daily Notes
+Date: Sunday, April 7, 2024
+Occasion: DIVINE SUNDAY, JESUS I TRUST IN YOU! 
 
 My daily Routine:
 - Woke up 8:05 am
