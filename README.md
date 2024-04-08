@@ -13,10 +13,11 @@ My daily Routine:
 - Checked WhatsApp and brushed my teeth and showered
 - Guasha my face for a minute and applyed moisturizer
 - I made crepes for brunch
-- It was a snow blizzard today and i stayed inside
-- i talked to my mom and helped sist delete snap chat and i spoke to Rosy
-- I made dinner , chicken pot recipe and biscuits 
-- i washed my hair and straightened it and We are watching lakers and Bucks
+- It was a rainy day , i had a call with my family
+- i talked to my mom and it was Kwibuka 30th
+- LC made dinner , Igitoki and Salmon
+- We went to church
+- We watched CMT after dinner and i resumed reading itle.
 - Get to work and give my all in I did zone, Freight z rack and tech, PF and check lanes
 - Get back and have /LC made dinner, ibijumba with soup i made the other day
 [ i had a rude attitude guest on the texh call today who almost made me lose it]
