@@ -3,7 +3,7 @@
 A portfolio GitHub webpage with my resume
 
 Daily Notes
-Date: Sunday, April 7, 2024
+Date: Monday, April 8, 2024
 Occasion: DIVINE SUNDAY, JESUS I TRUST IN YOU! 
 
 My daily Routine:
