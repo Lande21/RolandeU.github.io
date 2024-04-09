@@ -11,7 +11,7 @@ My daily Routine:
 - Pray and had some H2O
 - Drink some water, Made the bed, and went to pee
 - Checked WhatsApp and brushed my teeth and showered
-- Guasha my face for a minute and applyed moisturizer
+- Guasha my face for a minute and applyed moisturizer after kwoga
 - I made crepes for brunch
 - It was a rainy day , i had a call with my family
 - i talked to my mom and it was Kwibuka 30th
