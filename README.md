@@ -18,7 +18,7 @@ My daily Routine:
 - LC made dinner , Igitoki and Salmon
 - We went to church
 - We watched CMT after dinner and i resumed reading itle.
-- Get to work and give my all in I did zone, Freight z rack and tech, PF and check lanes
+- Get to work and give my all in I did FR, Freight
 - Get back and have /LC made dinner, ibijumba with soup i made the other day
 [ i had a rude attitude guest on the texh call today who almost made me lose it]
 - Wash dishes , Read 30 pages and commit
