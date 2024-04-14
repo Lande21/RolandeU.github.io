@@ -3,11 +3,11 @@
 A portfolio GitHub webpage with my resume
 
 Daily Notes
-Date: Monday, April 8, 2024
+Date: Saturday, April 13, 2024
 Occasion: DIVINE SUNDAY, JESUS I TRUST IN YOU! 
 
 My daily Routine:
-- Woke up 8:25 am, Day 8 no tiktok ! and day 35 no instagram!
+- Woke up 7:11 am, Day 8 no tiktok ! and day 35 no instagram!
 - Pray and had some H2O
 - Drink some water, Made the bed, and went to pee
 - Checked WhatsApp and brushed my teeth and showered
