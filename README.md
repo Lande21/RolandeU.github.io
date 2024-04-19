@@ -3,11 +3,14 @@
 A portfolio GitHub webpage with my resume
 
 Daily Notes
-Date: Monday, April 15, 2024
+Date: Thursday, April 17, 2024
 Occasion: DIVINE SUNDAY, JESUS I TRUST IN YOU! 
 
+
+Daily cut off, no IG today or youtube
+yes TT, X, 
 My daily Routine:
-- Woke up 8:49 am, Day 10 no tiktok ! and day 36 no instagram!
+- Woke up 8:49 am, Day 10 no Tiktok ! and day 36 no instagram!
 - Pray and had some H2O
 - Drink some water, Made the bed, and went to pee
 - Checked WhatsApp and brushed my teeth and showered
