@@ -3,7 +3,9 @@
 A portfolio GitHub webpage with my resume
 
 Daily Notes
-Date: Thursday, April 17, 2024
+Date: Thursday, April 23, 2024
+JUST SUBMITTED MY GRAD SCHOOL MNSU APPLICATION!, 
+HAPPY BIRTHDAY GRAND-MA :)
 Occasion: DIVINE SUNDAY, JESUS I TRUST IN YOU! 
 
 
