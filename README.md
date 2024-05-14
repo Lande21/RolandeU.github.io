@@ -7,7 +7,7 @@ Date: Monday, May 13, 2024
 I HIT 1K COMMITS!!
 HAPPY SAINT DAY ROLANDA :)
 Occasion: DIVINE SUNDAY, JESUS I TRUST IN YOU! 
-
+MIRACLE: I GOT IN!!! MY DAD GOT A JOB AND WE ARE ONE STEP CLOSER!!!!
 
 Daily cut off, no IG today or youtube
 yes TT, X, 
