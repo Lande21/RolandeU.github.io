@@ -20,7 +20,7 @@ My daily Routine:
 - I made oat meal and went to work
 - It was a rainy day , i had a call with my family
 - i talked to my mom and it was Kwibuka 30th
-- LC made dinner , Igitoki and Salmon
+- I made dinner , Delish ground turkey meatballs pasta.
 - We went to church
 - We watched NBA Playoffs after dinner and i resumed reading.
 - Get to work and give my all in I did FR clean up.
