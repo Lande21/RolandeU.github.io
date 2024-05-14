@@ -3,9 +3,9 @@
 A portfolio GitHub webpage with my resume
 
 Daily Notes
-Date: Sunday, April 28, 2024
-JUST ABOUT TO REACH 1K COMMITS!!
-HAPPY BIRTHDAY GRAND-MA :)
+Date: Monday, May 13, 2024
+I HIT 1K COMMITS!!
+HAPPY SAINT DAY ROLANDA :)
 Occasion: DIVINE SUNDAY, JESUS I TRUST IN YOU! 
 
 
