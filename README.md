@@ -3,7 +3,9 @@
 A portfolio GitHub webpage with my resume
 
 Daily Notes
-Date: Monday, May 13, 2024
+Date: Thursday, May 16, 2024
+I TALKED TO BRIANA AND I AM APPLYING FOR STEM OPT, WILL FILL OUT THE DOC WITH JEN 2morro.
+Chris woods, ccontacted me about an offer.
 I HIT 1K COMMITS!!
 HAPPY SAINT DAY ROLANDA :)
 Occasion: DIVINE SUNDAY, JESUS I TRUST IN YOU! 
