@@ -1,4 +1,4 @@
-
+oh
 # RolandeU.github.io
 A portfolio GitHub webpage with my resume
 
@@ -14,7 +14,7 @@ MIRACLE: I GOT IN!!! MY DAD GOT A JOB AND WE ARE ONE STEP CLOSER!!!!
 Daily cut, none tpday ---lots of birthday messages.. IG today or youtube
 yes TT, X, 
 My daily Routine:
-- Woke up 8:49 am, Day 10 no Tiktok ! and day 36 no instagram!
+- Woke up 8:49 am, Day 10 no Tiktok ! and day 36
 - Pray and had some H2O
 - Drink some water, Made the bed, and did morning stretch
 - Checked WhatsApp and brushed my teeth and showered
