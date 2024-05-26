@@ -9,7 +9,7 @@ IT'S MY BIRTHDAY !!! 24 TRIPS AROUND THE SUN!
 I HIT 1K COMMITS!!
 HAPPY Birthday !!!
 Occasion: NEW SEASON 24! 
-MIRACLE: I GOT IN!!! MY DAD GOT A JOB AND WE ARE !!!!
+MIRACLE: I GOT IN!!! MY DAD GOT A JOB AND WE FINALLY FOUND AN APARTMENT!!!!!!
 
 Daily cut, none tpday ---lots of birthday messages.. IG today or youtube
 
