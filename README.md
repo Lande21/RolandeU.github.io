@@ -11,7 +11,7 @@ HAPPY Birthday !!!
 Occasion: NEW SEASON 24! 
 MIRACLE: I GOT IN!!! MY DAD GOT A JOB AND WE FINALLY FOUND AN APARTMENT!!!!!!
 
-bDaily cut, none tpday ---lots of birthday messages.. IG today
+bDaily cut, none tpday ---lots of birthday messages..obvi 
 
 My daily Routine:
 - Woke up 8:49 am, Day 10 no Tiktok ! and day 36
