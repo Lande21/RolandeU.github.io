@@ -13,9 +13,9 @@ MIRACLE: ALWAYS!
 Social media cut OUT, INSTA, none tOday ---lots of birthday messages..obvi 
 
 My daily Routine:
-- Woke up 8:49 am, Day 10 no Tiktok ! and day 36
+- Woke up , I thank GOD
 - Pray and had some H2O
-- Drink some water, Made the bed, and did morning stretch
+- Drink some more water, Made the bed, and did morning stretch
 - Checked WhatsApp and brushed my teeth and showered
 - Guasha my face for a minute and applyed moisturizer after shower
 - I made birthday breakfast and finished my Cake
