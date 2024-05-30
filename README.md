@@ -19,7 +19,7 @@ My daily Routine:
 - Checked WhatsApp and brushed my teeth and showered
 - Guasha my face for a minute and applyed moisturizer after shower
 - I made birthday breakfast and finished my Cake
-- It was a rainy day , i had a call with my family
+- It was a sunny day , i had a call with my family
 - i talked to my mom and it was Kwibuka 30th
 - I made dinner , Delish ground turkey meatballs pasta.
 - I cant wait to go to church as a 24 year old.
