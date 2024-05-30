@@ -21,7 +21,7 @@ My daily Routine:
 - I made birthday breakfast and finished my Cake
 - It was a sunny day , i had a call with my family
 - i talked to my mom and it was Kwibuka 30th
-- I made dinner , Delish ground turkey meatballs pasta.
+- Papa made dinner , and We had a good time, diama passed by, we move in a couple days--next mon.
 - I cant wait to go to church as a 24 year old.
 - We watched NBA Playoffs after dinner and they sang happy birthday to me.
 - Get to work and give my all in I did FR clean up.
