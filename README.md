@@ -1,6 +1,6 @@
 oh, Welcome...
 # RolandeU.github.io
-A portfolio GitHub webpage with my resume
+A portfolio GitHub webpage with a few bits of my work
 
 Daily Notes
 Date: Wednesday , May 29, 2024
