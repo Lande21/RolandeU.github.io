@@ -1,10 +1,10 @@
-oh
+oh, Welcome...
 # RolandeU.github.io
 A portfolio GitHub webpage with my resume
 
 Daily Notes
-Date: Saturday , May 21, 2024
-IT'S MY BIRTHDAY !!! 24 TRIPS AROUND THE SUN!
+Date: Wednesday , May 29, 2024
+24 TRIPS AROUND THE SUN BABYYY!
 
 I HIT 1K COMMITS!!
 HAPPY Birthday !!!
