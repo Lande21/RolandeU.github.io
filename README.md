@@ -7,11 +7,10 @@ Date: Wednesday , May 29, 2024
 24 TRIPS AROUND THE SUN BABYYY!
 
 I HIT 1K COMMITS!!
-HAPPY Birthday !!!
-Occasion: NEW SEASON 24! 
-MIRACLE: I GOT IN!!! MY DAD GOT A JOB AND WE FINALLY FOUND AN APARTMENT!!!!!!
+Occasion: 24 CONTENT CREATION!
+MIRACLE: ALWAYS!
 
-Social media cut, none tpday ---lots of birthday messages..obvi 
+Social media cut OUT, INSTA, none tOday ---lots of birthday messages..obvi 
 
 My daily Routine:
 - Woke up 8:49 am, Day 10 no Tiktok ! and day 36
