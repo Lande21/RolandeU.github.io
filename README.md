@@ -16,8 +16,8 @@ My daily Routine:
 - Woke up , I thank GOD, Talked to MOM--- the package arrived to virginia, can't wait for the reveal of Roro
 - Pray and had some H2O
 - Drink some more water, Made the bed, and did morning stretch
-- Checked WhatsApp and brushed my teeth and showered
-- Guasha my face for a minute and applyed moisturizer after shower
+- Checked WhatsApp and brushed my teeth and
+- I haven't Guasha-d my face for a minute and applyed moisturizer after shower
 - I made birthday breakfast and finished my Cake
 - It was a sunny day , i had a call with my family
 - i talked to my mom and it was Kwibuka 30th
