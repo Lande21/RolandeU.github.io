@@ -13,7 +13,7 @@ Days i have been posting on tiktok, consecutively :4
 Social media cut OUT, INSTA, none tOday ---lots of birthday messages..obvi 
 
 My daily Routine:
-- Woke up , I thank GOD
+- Woke up , I thank GOD, Talked to MOM
 - Pray and had some H2O
 - Drink some more water, Made the bed, and did morning stretch
 - Checked WhatsApp and brushed my teeth and showered
