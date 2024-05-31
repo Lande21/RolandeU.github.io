@@ -18,7 +18,7 @@ My daily Routine:
 - Drink some more water, Made the bed, and did morning stretch
 - Checked WhatsApp and brushed my teeth and
 - I haven't Guasha-d my face for a minute and applyed moisturizer after shower
-- I made birthday breakfast and finished my Cake
+- I made greek yogurt, granola and fruits for breakfast 
 - It was a sunny day , i had a call with my family
 - i talked to my mom and it was Kwibuka 30th
 - Papa made dinner , and We had a good time, diama passed by, we move in a couple days--next mon.
