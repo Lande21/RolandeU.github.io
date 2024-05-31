@@ -9,11 +9,11 @@ Date: Thursday , May 30, 2024
 I HIT 1K COMMITS!!
 Occasion: 24, CONTENT CREATION!
 MIRACLE: ALWAYS!
-Days i have been posting on tiktok, consecutively :4 
-Social media cut OUT, INSTA, none tOday ---lots of birthday messages..obvi 
+Days i have been posting on tiktok, consecutively : 4 
+Social media cut OUT, INSTA, none today ---lots of birthday messages..obvi 
 
 My daily Routine:
-- Woke up , I thank GOD, Talked to MOM
+- Woke up , I thank GOD, Talked to MOM--- the package arrived to virginia, can't wait for the reveal of Roro
 - Pray and had some H2O
 - Drink some more water, Made the bed, and did morning stretch
 - Checked WhatsApp and brushed my teeth and showered
