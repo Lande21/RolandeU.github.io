@@ -7,9 +7,9 @@ Date: Thursday , May 30, 2024
 24 TRIPS AROUND THE SUN BABYYY!
 
 I HIT 1K COMMITS!!
-Occasion: 24 CONTENT CREATION!
+Occasion: 24, CONTENT CREATION!
 MIRACLE: ALWAYS!
-
+Days i have been posting on tiktok, consecutively :4 
 Social media cut OUT, INSTA, none tOday ---lots of birthday messages..obvi 
 
 My daily Routine:
