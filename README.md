@@ -3,7 +3,7 @@ oh, Welcome...
 A portfolio GitHub webpage with a few bits of my work
 
 Daily Notes
-Date: Wednesday , May 29, 2024
+Date: Thursday , May 30, 2024
 24 TRIPS AROUND THE SUN BABYYY!
 
 I HIT 1K COMMITS!!
