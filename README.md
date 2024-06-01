@@ -20,7 +20,7 @@ My daily Routine:
 - I haven't Guasha-d my face for a minute and applyed moisturizer after shower
 - I made greek yogurt, granola and fruits for breakfast 
 - It was a sunny day , i had a call with my family
-- i talked to my mom and it was Kwibuka 30th
+- i talked to my mom and SISTERS!!
 - I made dinner , and We had isombe, pate jeune and beans.we move in a couple days--next mon.
 - I cant wait to go to church as a 24 year old.
 - We watched NBA Playoffs after dinner and they sang happy birthday to me.
