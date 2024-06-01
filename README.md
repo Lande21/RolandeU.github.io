@@ -21,7 +21,7 @@ My daily Routine:
 - I made greek yogurt, granola and fruits for breakfast 
 - It was a sunny day , i had a call with my family
 - i talked to my mom and SISTERS!!
-- I made dinner , and We had isombe, pate jeune and beans.we move in a couple days--next mon.
+- I made dinner , and We had isombe, ROSEMARY CHICKEN and YUMMM.we move in a couple days--next mon.
 - I cant wait to go to church as a 24 year old.
 - We watched NBA Playoffs after dinner and they sang happy birthday to me.
 - Get to work and give my all in I did FR clean up.
