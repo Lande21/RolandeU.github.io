@@ -17,7 +17,7 @@ My daily Routine:
 - Pray and had some H2O
 - Drink some more water, Made the bed, and did morning stretch
 - Checked WhatsApp and brushed my teeth and
-- I haven't Guasha-d my face for a minute and applyed moisturizer after shower
+- I haven't Guasha-d my face for a minute and applyed moisturizer
 - I made greek yogurt, granola and fruits for breakfast 
 - It was a sunny day , i had a call with my family
 - i talked to my mom and SISTERS!!
