@@ -9,7 +9,7 @@ FIRST DAY OF THE MONTH BABYYY!
 I HIT 1K COMMITS!!
 Occasion: 24, CONTENT CREATION!
 MIRACLE: ALWAYS!
-Days i have been posting on tiktok, consecutively : 5 
+Days i have been posting on tiktok, consecutively : 6
 Social media cut OUT, INSTA, none today ---lots of birthday messages..obvi 
 
 My daily Routine:
