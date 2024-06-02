@@ -3,7 +3,7 @@ oh, Welcome...
 A portfolio GitHub webpage with a few bits of my work
 
 Daily Notes
-Date: Friday , May 31, 2024
+Date: Saturday , June 1st, 2024
 LAST DAY OF THE MONTH BABYYY!
 
 I HIT 1K COMMITS!!
