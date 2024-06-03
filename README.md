@@ -25,7 +25,7 @@ My daily Routine:
 - i talked to my mom and SISTERS!! WE STARTED NOVENI🥹THis month for RoRo
 - I made dinner , and We had isombe, ROSEMARY CHICKEN and YUMMM.we move in a couple days--next mon.
 - I cant wait to go to church as a 24 year old.
-- We watched NBA Playoffs after dinner and they sang happy birthday to me.
+- I was watching deal or no deal after dinner and they sang happy birthday to me.
 - Get to work and give my all in I did FR clean up.
 [ i had a rude attitude custmr on the texh call today who almost made me lose it]
 - Washed dishes ,-- Read 30 pages and commit
