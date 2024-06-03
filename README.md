@@ -1,4 +1,4 @@
-oh, Welcome...
+oh oh, Welcome...
 # RolandeU.github.io
 A portfolio GitHub webpage with a few bits of my work
 
@@ -18,7 +18,7 @@ My daily Routine:
 - Pray and had some H2O
 - Day 24 /27 PP 
 - Drink some more water, Made the bed, and did morning stretch
-- Checked WhatsApp and brushed my teeth and
+- Checked WhatsApp and brushed my teeth and finished braiding my hair
 - I haven't Guasha-d my face for a minute and applyed moisturizer
 - I made greek yogurt, granola and fruits for breakfast 
 - It was a sunny day , i had a call with my family
