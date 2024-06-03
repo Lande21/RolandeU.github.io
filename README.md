@@ -20,7 +20,7 @@ My daily Routine:
 - Drink some more water, Made the bed, and did morning stretch
 - Checked WhatsApp and brushed my teeth and finished braiding my hair
 - I haven't Guasha-d my face for a minute and applyed moisturizer
-- I had some leftover from last noghy for breakfast....greek yogurt, granola and fruits for breakfast 
+- I had some leftover from last noghy for breakfast....
 - It was a sunny day , i had a call with my family
 - i talked to my mom and SISTERS!! WE STARTED NOVENI🥹
 - I made dinner , and We had isombe, ROSEMARY CHICKEN and YUMMM.we move in a couple days--next mon.
