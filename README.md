@@ -3,8 +3,9 @@ oh, Welcome...
 A portfolio GitHub webpage with a few bits of my work
 
 Daily Notes
-Date: Saturday , June 1st, 2024
+Date: Sunday , June 2st, 2024
 FIRST DAY OF THE MONTH BABYYY!
+Noveni day 1/9 :)
 
 I HIT 1K COMMITS!!
 Occasion: 24, CONTENT CREATION!
