@@ -14,7 +14,7 @@ Days i have been posting on tiktok, consecutively : 6
 Social media cut OUT, INSTA, none today ---lots of birthday messages..obvi 
 
 My daily Routine:
-- Woke up , I thank GOD, Talked to MOM--- D came to help us move, LC took a day of to let us move :), 
+- Woke up , I thank GOD, Talked to MOM--- D came to help us move, LC took a day of to let us move :), We are forever grateful for them and all they do to us!
 - Pray and had some H2O
 - Day 24 /27 PP 
 - Drink some more water, Made the bed, and did morning stretch
