@@ -9,7 +9,7 @@ Noveni day 1/9 :)
 
 I HIT 1K COMMITS!!
 Occasion: 24, CONTENT CREATION!
-MIRACLE: ALWAYS!
+MIRACLE: ALWAYS HAPPENING!
 Days i have been posting on tiktok, consecutively : 6
 Social media cut OUT, INSTA, none today ---lots of birthday messages..obvi 
 
