@@ -17,7 +17,7 @@ My daily Routine:
 - Woke up , I thank GOD, Talked to MOM--- D came to help us move, LC took a day of to let us move :), We are forever grateful for them and all they do to us!
 - Pray and had some H2O, 9:00-5:30p
 - Day 26 /27 PP 
-- Drink some more water, Made the bed, and did morning stretch
+- Drink some more water, Made the bed, and did morning stretch not really
 - Checked WhatsApp and brushed my teeth and finished braiding my hair
 - I haven't Guasha-d my face for a minute and applyed moisturizer
 - I made dinner, and it was our first meal at the new place!
