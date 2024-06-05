@@ -21,7 +21,7 @@ My daily Routine:
 - Checked WhatsApp and brushed my teeth and finished braiding my hair
 - I haven't Guasha-d my face for a minute and applyed moisturizer
 - I made dinner, and it was our first meal at the new place!
-- It was a cloudy day , i can't wait to have a call with the family tomorrow
+- It was a rainny day , i can't wait to have a call with the family tomorrow
 - i talked to my mom and SISTERS!! WE STARTED NOVENI🥹THis month for RoRo
 - I made dinner , and We had isombe, ROSEMARY CHICKEN and YUMMM.we move in a couple days--next mon.
 - I cant wait to go to church as a 24 year old.
