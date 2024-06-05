@@ -15,7 +15,7 @@ Social media cut OUT, INSTA, none today ---lots of birthday messages..obvi
 
 My daily Routine:
 - Woke up , I thank GOD, Talked to MOM--- D came to help us move, LC took a day of to let us move :), We are forever grateful for them and all they do to us!
-- Pray and had some H2O
+- Pray and had some H2O, 9:00-5:30p
 - Day 26 /27 PP 
 - Drink some more water, Made the bed, and did morning stretch
 - Checked WhatsApp and brushed my teeth and finished braiding my hair
