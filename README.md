@@ -20,7 +20,7 @@ My daily Routine:
 - Drink some more water, Made the bed, and did morning stretch not really
 - Checked WhatsApp and brushed my teeth and finished braiding my hair
 - I haven't Guasha-d my face for a minute and applyed moisturizer
-- Papa made dinner, and it was our second meal at the new place! Couscous YUM!
+- I made dinner, and it was our second meal at the new place! Couscous YUM!
 - It was a rainny day , i can't wait to be done with my period this june! this weekend 
 - i talked to my mom and SISTERS!! WE STARTED NOVENI🥹THis month for RoRo
 - I made dinner , and We had isombe, ROSEMARY CHICKEN and YUMMM.we move in a couple days--next mon.
