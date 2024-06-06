@@ -18,7 +18,7 @@ My daily Routine:
 - Pray and had some H2O, 9:00-5:30p, called my sisters 
 - Day 26 /27 PP 
 - Drink some more water, Made the bed, and did morning stretch not really
-- Checked WhatsApp and brushed my teeth and finished braiding my hair
+- First day of work for Papa and brushed my teeth and finished braiding my hair
 - I haven't Guasha-d my face for a minute and applyed moisturizer
 - I made dinner, and it was our second meal at the new place! Couscous YUM!
 - It was a rainny day , i can't wait to be done with my period this june! this weekend 
