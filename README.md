@@ -16,7 +16,7 @@ Social media cut OUT, INSTA 2/30, none today ---lots of birthday messages..obvi
 My daily Routine:
 - Woke up , I thank GOD, Talked to Rena and Ro--- D came to help us move, LC took a day of to let us move :), We are forever grateful for them and all they do to us!
 - Pray and had some H2O, 9:00-5:30p, called my sisters 
-- Day 27 /27 PP 
+- Day 1 /27 PP a solid 8/10
 - Drink some more water, Made the bed, and did morning stretch not really
 - First day of work for Papa and brushed my teeth and finished braiding my hair
 - I haven't Guasha-d my face for a minute and applyed moisturizer
