@@ -3,7 +3,7 @@
 A portfolio GitHub webpage with a few bits of my work
 
 Daily Notes
-Date: Thursday , June 5th, 2024
+Date: Thursday , June 6th, 2024
 FIRST DAY OF THE NEW PLACE BABYYY!
 Noveni day 3/9 :)
 
