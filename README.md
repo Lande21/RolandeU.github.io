@@ -16,7 +16,7 @@ Social media cut OUT, INSTA 2/30, none today ---lots of birthday messages..obvi
 My daily Routine:
 - Woke up , I thank GOD, Talked to Roro and Ma:), We are forever grateful for them and all they do to us!
 - Pray and had some H2O, 9:00-5:30p, called my sisters 
-- Day 1 /27 PP a solid 8/10
+- Day 2 /27 PP a solid 8/10, 9.1/20
 - Drink some more water, Made the bed, and did morning stretch not really
 - First day of work for Papa and he likes it
 - I haven't Guasha-d my face for a minute and applyed moisturizer
