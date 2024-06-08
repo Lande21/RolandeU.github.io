@@ -28,7 +28,7 @@ My daily Routine:
 - I made dinner , and We had isombe, ROSEMARY CHICKEN and YUMMM.we move in a couple days--next mon.
 - I cant wait to go to church as a 24 year old.
 - I was watching deal or no deal after dinner and they sang happy birthday to me.
-- Get to work and gave my all and did inverory and ubot
+- Get to work and gave my all and did invetory and covered tech and baught snail mucin
 [ i had a rude attitude custmr on the texh call today who almost made me lose it]
 - Washed dishes ,-- Read 30 pages and commit
 
