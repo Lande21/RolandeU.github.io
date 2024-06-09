@@ -14,7 +14,7 @@ Days i have been posting on tiktok, consecutively : 6
 Social media cut OUT, INSTA 5/30, none today ---lots of birthday messages..obvi 
 
 My daily Routine:
-- Woke up , I thank GOD, Talked to Roro and Ma:), We are forever grateful for them and all they do to us!
+- Woke up , I thank GOD, Talked to Roro and Renatha :), We are forever grateful for them and all they do to us!
 - Pray and had some H2O, 9:00-5:30p, called my sisters 
 - Day 2 /27 PP a solid 8/10, 9.1/10
 - I gotta e-mail MNSU this weekend and Brianna
