@@ -31,6 +31,6 @@ My daily Routine:
 - I was watching deal or no deal after dinner and they sang happy birthday to me.
 - Get to work and gave my all and did invetory and covered tech and baught snail mucin
 [ i had a rude attitude custmr on the texh call today who almost made me lose it]
-- Washed dishes ,-- Read 30 pages and commit
+- Washed dishes ,-- I gotta go back to reading the Read 30 pages and 10 commit per night
 
 
