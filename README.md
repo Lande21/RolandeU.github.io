@@ -4,7 +4,7 @@ A portfolio GitHub webpage with a few bits of my work
 
 Daily Notes
 Date: Saturday , June 8th, 2024
-FIRST DAY OF THE NEW PLACE BABYYY!
+FIRST MONTH OF THE NEW PLACE BABYYY!
 Noveni day 7/9 :)
 
 I HIT 1K COMMITS!!
