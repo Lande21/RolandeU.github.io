@@ -11,7 +11,7 @@ I HIT 1K COMMITS!!
 Occasion: 24, CONTENT CREATION!
 MIRACLE: ARE ALWAYS HAPPENING!
 Rewatching Criminal minds and upping my game on Kaggle
-
+LAST DAY OF WORK TOMORROW .....
 
 My daily Routine:
 - Woke up , I thank GOD, Talked to Roro and Renatha :), Dad went to church :)
