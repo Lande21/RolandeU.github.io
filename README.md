@@ -9,9 +9,9 @@ Noveni day 8/9 :)
 A SIMULATION...???
 I HIT 1K COMMITS!!
 Occasion: 24, CONTENT CREATION!
-MIRACLE: ALWAYS HAPPENING!
-Days i have been posting on tiktok, consecutively : 6
-Social media cut OUT, INSTA 5/30, none today ---lots of birthday messages..obvi 
+MIRACLE: ARE ALWAYS HAPPENING!
+Days i have been posting on tiktok, consecutively : 7
+
 
 My daily Routine:
 - Woke up , I thank GOD, Talked to Roro and Renatha :), We are forever grateful for them and all they do to us!
