@@ -29,7 +29,7 @@ My daily Routine:
 - I made dinner , and We had isombe, ROSEMARY CHICKEN and YUMMM.we move in a couple days--next mon.
 - I cant wait to go to church as a 24 year old....
 - Get to work and gave my all and did invetory and covered tech and baught snail mucin
-[ i had a rude attitude custmr on the texh call today who almost made me lose it]
-- Washed dishes ,-- I gotta go back to reading the Read 30 pages and 10 commit per night
+[ i had a rude attitude custmr on the text call today who almost made me lose it]
+- Made good dinner and had pund cake,-- I gotta go back to reading the Read 30 pages and 10 commit per night
 
 
