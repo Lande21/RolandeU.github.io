@@ -10,7 +10,7 @@ A SIMULATION...???
 I HIT 1K COMMITS!!
 Occasion: 24, CONTENT CREATION!
 MIRACLE: ARE ALWAYS HAPPENING!
-Days i have been posting on tiktok, consecutively : 7
+Rewatching Criminal minds and upping my game on Kaggle
 
 
 My daily Routine:
