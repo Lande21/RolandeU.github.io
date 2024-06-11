@@ -5,8 +5,8 @@ A portfolio GitHub webpage with a few bits of my work
 Daily Notes
 Date: Monday , June 10th, 2024
 FIRST MONTH OF THE NEW PLACE BABYYY!
-Noveni day 8/9 :)
-A SIMULATION...???
+Noveni day 9/9 :)
+
 I HIT 1K COMMITS!!
 Occasion: 24, CONTENT CREATION!
 MIRACLE: ARE ALWAYS HAPPENING!
