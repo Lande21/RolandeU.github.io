@@ -30,6 +30,6 @@ My daily Routine:
 - I cant wait to go to church as a 24 year old....
 - Get to work and gave my all and did invetory and covered tech and baught snail mucin
 [ i had a rude attitude custmr on the text call today who almost made me lose it]
-- Made good dinner and had pund cake,-- I gotta go back to reading the Read 30 pages and 10 commit per night
-
+- Made good dinner and had pound cake,-- I gotta go back to reading the Read 30 pages and 10 commit per night
+BYE BYE TARGET
 
