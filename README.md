@@ -15,7 +15,7 @@ Rewatching Criminal minds and upping my game on Kaggle
 LAST DAY OF WORK TOMORROW .....
 
 My daily Routine:
-- Woke up , I thank GOD, Talked to Roro and Renatha :), Dad went to church :)
+- Woke up , I thank GOD, Talked to Roro and MOM :), Dad went to church :)
 - Pray and had some H2O, 9:00-5:30p, called my sisters 
 - Day 4 /27 PP a solid 8/10, 9.1/10
 - I gotta e-mail the schools this monday!
