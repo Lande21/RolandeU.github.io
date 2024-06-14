@@ -18,7 +18,7 @@ My daily Routine:
 - Woke up , I thank GOD, Talked to Roro and MOM on call :)
 - Pray and had some H2O, i went to aLDI
 - Day 7/27 PP a solid 8/10, 9.1/10
-- I gotta e-mail the school financial office...
+- I gotta e-mail the school financial office...Not yet...
 - Gotta buy some house materials, i did
 - Drink some more water, Made the bed, and did morning stretch not really
 - First day of work for Papa and he likes it, I only have one day left to work!!
