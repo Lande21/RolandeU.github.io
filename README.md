@@ -22,7 +22,7 @@ My daily Routine:
 - Gotta buy some house materials, i did
 - Drink some more water, Made the bed, and did morning stretch not really
 - First month of work for Papa and he likes it,He met someone 19old telmabout car ownership??
-- I haven't Guasha-d my face for a minute and applyed moisturizer
+- I haven't Guasha-d my face for a month now but the eucerin sunscreen is top tier
 - P made dinner pasta bolognese, rice and fries and amashu
 - Papa made dinner, and it was our third or fourth  meal at the new place! Couscous YUM!
 - It was a rainny day , i can't wait to be done with my period this june! this weekend 
