@@ -15,8 +15,8 @@ Rewatching Criminal minds and upping my game on Kaggle
 LAST DAY OF WORK TOMORROW .....
 
 My daily Routine:
-- Woke up , I thank GOD, Talked to Roro and MOM :)
-- Pray and had some H2O, 9:00-5:30p, called my sisters 
+- Woke up , I thank GOD, Talked to Roro and MOM on call :)
+- Pray and had some H2O, i went to aLDI
 - Day 7/27 PP a solid 8/10, 9.1/10
 - I gotta e-mail the school financial office...
 - Gotta buy some house materials, i did
