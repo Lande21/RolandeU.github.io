@@ -5,7 +5,7 @@ A portfolio GitHub webpage with a few bits of my work
 Daily Notes
 Date: Thursday, June 13th, 2024
 FIRST MONTH OF THE NEW PLACE BABYYY!
-My OPT expired today.....cant work no more 
+My OPT expired 2 days ago.....cant work no more 
 Noveni day 9/9 :)
 Last day at t today ...
 I HIT 1K COMMITS!!
@@ -17,7 +17,7 @@ LAST DAY OF WORK TOMORROW .....
 My daily Routine:
 - Woke up , I thank GOD, Talked to Roro and MOM :)
 - Pray and had some H2O, 9:00-5:30p, called my sisters 
-- Day 6/27 PP a solid 8/10, 9.1/10
+- Day 7/27 PP a solid 8/10, 9.1/10
 - I gotta e-mail the school financial office...
 - Gotta buy some house materials, i did
 - Drink some more water, Made the bed, and did morning stretch not really
