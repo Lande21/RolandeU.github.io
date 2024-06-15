@@ -3,7 +3,7 @@
 A portfolio GitHub webpage with a few bits of my work
 
 Daily Notes
-Date: Friday, June 13th, 2024
+Date: Friday, June 14th, 2024
 FIRST MONTH OF THE NEW PLACE BABYYY!
 My OPT expired 2 days ago.....cant work no more 
 Noveni day 9/9 :)
