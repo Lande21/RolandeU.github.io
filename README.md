@@ -8,7 +8,7 @@ FIRST MONTH OF THE NEW PLACE BABYYY!
 My OPT expired 2 days ago.....cant work no more 
 Noveni day 9/9 :)
 Last day at t today ...
-I HIT 1K COMMITS!!
+I HIT 1K COMMIT
 Occasion: 24
 MIRACLE: ARE ALWAYS HAPPENING!
 Rewatching Criminal minds and upping my game on Kaggle
