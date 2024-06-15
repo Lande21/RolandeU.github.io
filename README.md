@@ -27,7 +27,7 @@ My daily Routine:
 - I made dinner, and stir fried beef and veggies at the new place! and rice yummm!
 - It was a sunny day , i can't wait to be done with my period this june! this weekend 
 - i talked to my mom and SISTERS!! WE STARTED NOVENI🥹THis month for RoRo and the Baby Ivy
-- I cant wait to go to church as a 24 year old....
+- I cant wait to go to church as a 24 year old....on fathers day
 - Get to work and gave my all and did invetory and covered tech and baught snail mucin
 [ i had a rude attitude custmr on the text call today who almost made me lose it]
 - Made good dinner and had pound cake,-- I gotta go back to reading the Read 30 pages and 10 commit per night
