@@ -31,7 +31,7 @@ My daily Routine:
 - i talked to my mom and SISTERS!! WE STARTED NOVENI🥹THis month for RoRo and the Baby Ivy
 - I cant wait to go to church as a 24 year old....on fathers day
 - Get to work and gave my all and did invetory and covered tech and baught snail mucin
-[ i had a rude attitude custmr on the text call today who almost made me lose it]
+[ i had a rude attitude  on the text call today who almost made me lose it]
 - Made good dinner and had pound cake,-- I gotta go back to reading the Read 30 pages and 10 commit per night
 BYE BYE TARGET
 
