@@ -25,7 +25,6 @@ My daily Routine:
 - Drink some more water, Made the bed, and did morning stretch not really
 - First month of work for Papa and he likes it,He met someone 19old telmabout car ownership??
 - I haven't Guasha-d my face for a month now but the eucerin sunscreen is top tier
-- I made dinner pasta bolognese, rice and fries and amashu
 - I made dinner, baked chicken drumsticks, and rice with veggies yummm!
 - It was a rainy day , i can't wait to be done with my period this june! this weekend 
 - i talked to my mom and SISTERS!! WE STARTED NOVENI🥹THis month for RoRo and the Baby Ivy
