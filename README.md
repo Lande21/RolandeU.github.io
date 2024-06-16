@@ -17,7 +17,7 @@ Rewatching Criminal minds and upping my game on Kaggle
 I START MY DS JOURNEY TOMORROW .....1*
 Q of Tears is so good
 My daily Routine:
-- Woke up , I thank GOD, Talked to Roro and MOM on call :)
+- Woke up , I thank GOD, Talked to Roro and MOM on call
 - Pray and had some H2O, i went to aLDI
 - Day 9/27 PP a solid 8/10, 9.1/10
 - I gotta e-mail the school financial office...Not yet...
