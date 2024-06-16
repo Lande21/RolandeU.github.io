@@ -21,7 +21,7 @@ My daily Routine:
 - Pray and had some H2O, i went to aLDI
 - Day 9/27 PP a solid 8/10, 9.1/10
 - I gotta e-mail the school financial office...Not yet...
-- Gotta buy some house materials, i did
+- Gotta buy some house materials, i did 8/10
 - Drink some more water, Made the bed, and did morning stretch not really
 - First month of work for Papa and he likes it,He met someone 19old telmabout car ownership??
 - I haven't Guasha-d my face for a month now but the eucerin sunscreen is top tier
