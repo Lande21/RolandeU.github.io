@@ -10,7 +10,7 @@ Noveni day 9/9 :)
 Last day at t today ...
 I HIT 1K COMMIT
 
-went to dallar tree and culvers
+
 Occasion: 24
 MIRACLE: ARE ALWAYS HAPPENING!
 Rewatching Criminal minds and upping my game on Kaggle
