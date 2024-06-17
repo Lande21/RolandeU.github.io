@@ -19,7 +19,7 @@ Q of Tears is so good
 My daily Routine:
 - Woke up , I thank GOD, Talked to Roro and MOM on call
 - Pray and had some H2O, i went to aLDI
-- Day 9/27 PP a solid 8/10, 9.1/10
+- Day 10/27 PP a solid 8/10, 9.1/10
 - I gotta e-mail the school financial office...Not yet...
 - Gotta buy some house materials, i did 8/10
 - Drink some more water, Made the bed, and did morning stretch not really
