@@ -26,7 +26,7 @@ My daily Routine:
 - First month of work for Papa and he likes it,He met someone 19old telmabout car ownership??
 - I haven't Guasha-d my face for a month now but the eucerin sunscreen is top tier
 - I made dinner, baked chicken drumsticks, and rice with veggies yummm!
-- It was a rainy day , i can't wait to be done with my period this june! this weekend 
+- It was a sunny day , i can't wait to be done with my period this june! this weekend 
 - i talked to my mom and SISTERS!! WE STARTED NOVENI🥹THis month for RoRo and the Baby Ivy
 - I cant wait to go to church as a 24 year old....on fathers day
 - Get to work and gave my all and did invetory and covered tech and baught snail mucin
