@@ -7,7 +7,7 @@ Date: Sunday, June 16th, 2024
 FIRST MONTH OF THE NEW PLACE BABYYY!
 My OPT expired 4 days ago.....cant work no more 
 Noveni day 9/9 :)
-Last day at t today ...
+we went to chirch and to Qamaria coffee shop ...
 I HIT 1K COMMIT
 
 
