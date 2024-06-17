@@ -7,7 +7,7 @@ Date: Sunday, June 16th, 2024
 FIRST MONTH OF THE NEW PLACE BABYYY!
 My OPT expired 4 days ago.....cant work no more 
 Noveni day 9/9 :)
-we went to chirch and to Qamaria coffee shop ...
+we went to church and to Qamaria coffee shop ...
 I HIT 1K COMMIT
 
 
@@ -19,7 +19,7 @@ Q of Tears is so good
 My daily Routine:
 - Woke up , I thank GOD, Talked to Roro and MOM on call
 - Pray and had some H2O, i went to aLDI
-- Day 10/27 PP a solid 8/10, 9.1/10
+- Day 10/27 PP , gotta start noveni for sisy again tomorrow 
 - I gotta e-mail the school financial office...Not yet...
 - Gotta buy some house materials, i did 8/10
 - Drink some more water, Made the bed, and did morning stretch not really
