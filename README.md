@@ -1,4 +1,4 @@
-No I oh oh, Welcome...
+ oh oh, Welcome...
 # RolandeU.github.io
 A portfolio GitHub webpage with a few bits of my work
 
@@ -22,7 +22,7 @@ My daily Routine:
 - Day 10/27 PP , gotta start noveni for sisy again tomorrow 
 - I gotta e-mail the school financial office...Not yet...
 - Gotta buy some house materials, i did 8/10
-- Drink some more water, Made the bed, and did morning stretch not really
+- Drink some more water, Made the bed
 - First month of work for Papa and he likes it,He met someone 19old telmabout car ownership??
 - I haven't Guasha-d my face for a month now but the eucerin sunscreen is top tier
 - I made dinner, baked chicken drumsticks, and rice with veggies yummm!
