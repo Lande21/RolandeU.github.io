@@ -18,7 +18,7 @@ I START MY DS JOURNEY TOMORROW .....
 
 My daily Routine:
 - Woke up , I thank GOD, Talked to Roro and MOM on call
-- Pray and had some H2O, i went to aLDI
+
 
 
 
