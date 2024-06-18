@@ -11,7 +11,7 @@ I HIT 1K COMMIT
 
 Occasion: 24
 MIRACLE: ARE ALWAYS HAPPENING!
-Rewatching Criminal minds and upping my game on Kaggle
+***Rewatching Criminal minds and upping my game on Kaggle***
 
 
 
