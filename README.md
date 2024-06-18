@@ -16,8 +16,6 @@ MIRACLE: ARE ALWAYS HAPPENING!
 Rewatching Criminal minds and upping my game on Kaggle
 I START MY DS JOURNEY TOMORROW .....
 
-My daily Routine:
-- Woke up , I thank GOD, Talked to Roro and MOM on call
 
 
 
