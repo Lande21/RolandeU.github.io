@@ -28,7 +28,5 @@ My daily Routine:
 - I made dinner, baked chicken drumsticks soup and rice with veggies yummm!
 - It was a sunny day , i can't wait to be done with my period this june! this weekend 
 - i talked to my mom and SISTERS!! WE STARTED NOVENI🥹THis month for RoRo and the Baby Ivy
-- I cant wait to go to church as a 24 year old....on fathers day
-- Made good dinner and had pound cake,-- I gotta go back to reading the Read 30 pages and 10 commit per night
-BYE BYE TARGET
+
 
