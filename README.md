@@ -21,9 +21,7 @@ My daily Routine:
 - Pray and had some H2O, i went to aLDI
 - Day 10/27 PP , gotta start noveni for sisy again tomorrow 
 - I gotta e-mail the school financial office...Not yet...
-- Gotta buy some house materials, i did 8/10
-- Drink some more water, Made the bed
-- First month of work for Papa and he likes it,He met someone 19old telmabout car ownership??
+
 
 
 
