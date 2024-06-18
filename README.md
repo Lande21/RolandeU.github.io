@@ -25,7 +25,7 @@ My daily Routine:
 - Drink some more water, Made the bed
 - First month of work for Papa and he likes it,He met someone 19old telmabout car ownership??
 - I haven't Guasha-d my face for a month now but the eucerin sunscreen is top tier
-- I made dinner, baked chicken drumsticks soup and rice with veggies yummm!
+
 
 
 
