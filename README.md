@@ -24,7 +24,7 @@ My daily Routine:
 - Gotta buy some house materials, i did 8/10
 - Drink some more water, Made the bed
 - First month of work for Papa and he likes it,He met someone 19old telmabout car ownership??
-- I haven't Guasha-d my face for a month now but the eucerin sunscreen is top tier
+
 
 
 
