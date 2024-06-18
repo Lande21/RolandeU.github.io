@@ -19,7 +19,6 @@ I START MY DS JOURNEY TOMORROW .....
 My daily Routine:
 - Woke up , I thank GOD, Talked to Roro and MOM on call
 - Pray and had some H2O, i went to aLDI
-- Day 10/27 PP , gotta start noveni for sisy again tomorrow 
 
 
 
