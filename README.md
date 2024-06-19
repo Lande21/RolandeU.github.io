@@ -4,7 +4,7 @@ A portfolio GitHub webpage with a few bits of my work
 
 Daily Notes
 
-I HIT 1K COMMIT
+I HIT 1K COMM
 
 ***Rewatching Criminal minds and upping my game on Kaggle***
 
