@@ -11,7 +11,8 @@ I HIT 1K COMMITS
 Occasion: 24
 
 MIRACLE: ARE ALWAYS HAPPENING!
-Kaggle datasets, in 
+Kaggle datasets, Day...
+read 30pages ✅
 
 
 
