@@ -9,6 +9,7 @@ I HIT 1K COMMITS, the progress has been hindered by my failing MacBook with the 
 ***Rewatching Criminal minds and upping my game on Kaggle***
 
 Occasion: 24
+call highland
 
 MIRACLE: ARE ALWAYS HAPPENING!
 Kaggle datasets, Day...
