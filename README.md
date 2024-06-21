@@ -13,7 +13,7 @@ call highland and call school
 
 MIRACLE: ARE ALWAYS HAPPENING!
 Kaggle datasets, Day...
-read 30pages ✅✅
+read 30pages ✅✅, 10pages✅
 
 
 
