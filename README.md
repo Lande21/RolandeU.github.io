@@ -4,7 +4,7 @@ A portfolio GitHub webpage with a few bits of my work
 
 Daily Notes
 
-I HIT 1K COMMITS, the progress has been hindered by my failing MacBook with thefan 
+I HIT 1K COMMITS, the progress has been hindered by my failing MacBook with  
 
 ***Rewatching Criminal minds and upping my game on Kaggle***
 
