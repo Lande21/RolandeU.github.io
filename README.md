@@ -4,7 +4,7 @@ A portfolio GitHub webpage with a few bits of my work
 
 Daily Notes
 
-I HIT 1K COMMITS, i need progress ASAP
+I HIT 1K COMMITS, i need progress ASAP please please
 ***Rewatching Criminal minds and upping my game on Kaggle***
 
 Occasion: 24
