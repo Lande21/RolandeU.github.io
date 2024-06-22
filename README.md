@@ -1,7 +1,7 @@
  oh oh, Welcome...
 # RolandeU.github.io
 A portfolio GitHub webpage with a few bits of my work
-And the progressi have made
+And the progressi have made in ios 
 
 Daily Notes
 
