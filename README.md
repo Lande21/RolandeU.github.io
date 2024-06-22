@@ -1,6 +1,7 @@
  oh oh, Welcome...
 # RolandeU.github.io
 A portfolio GitHub webpage with a few bits of my work
+And the progress
 
 Daily Notes
 
