@@ -9,7 +9,7 @@ I HIT 1K COMMITS, i need progress ASAP please please
 ***Rewatching Criminal minds and upping my game on Kaggle***
 
 Occasion: 24
-
+rest up and start my portfolio 
 
 MIRACLE: ARE ALWAYS HAPPENING!
 Kaggle datasets, Day...
