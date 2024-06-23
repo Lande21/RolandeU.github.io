@@ -15,7 +15,7 @@ MIRACLE: ARE ALWAYS HAPPENING!
 Kaggle datasets, Day...
 read 30pages ✅✅, 10pages✅Finished the book✅
 D visited and we went to O
-Talked to Ma and Ro
+Talked to Ma and Ro🥰
 
 
 
