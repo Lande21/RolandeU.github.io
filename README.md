@@ -5,7 +5,7 @@ And the progress i have made in ios mobile development
 
 Daily Notes
 
-I HIT 1K COMMITS,please please
+I HIT 1K COMMITS
 ***Rewatching Criminal minds and upping my game on Kaggle***
 
 Occasion: 24
