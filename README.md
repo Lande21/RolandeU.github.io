@@ -11,7 +11,7 @@ I HIT 1K COMMITS
 
 Occasion: 24
 rest up and start my portfolio , 
-it is possible and less time consuming and i am going to enjoy doing and finishing it!
+it is possible and less time consuming and i am going to enjoy doing and finishing 
 
 MIRACLE: ARE ALWAYS HAPPENING!
 Kaggle datasets, Day...
