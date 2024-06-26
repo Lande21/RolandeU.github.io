@@ -18,7 +18,7 @@ Kaggle datasets, Day...
 read ✅10pages✅started a new book✅
 D visited and we went to O
 Talked to Ma and Ro had a successful delivery ❤️🙌🏽
-I am attending a CF
+I am attending a CF tomorrow 
 
 
 
