@@ -4,7 +4,7 @@ A portfolio GitHub webpage with a few bits of my work
 And the progress i have made in ios mobile development 
 
 Daily Notes
-Welcome BG Ivy🙌🏽❤️❤️❤️so so Thankful for GOD, Thank you!
+Welcome BG Ivy🙌🏽❤️❤️❤️so so Thankful for GOD, Thank you! i cant
 
 I HIT 1K COMMITS
 ***Rewatching Criminal minds and upping my game on Kaggle***
