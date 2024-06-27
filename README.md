@@ -18,7 +18,7 @@ Kaggle datasets, Day...
 read ✅10pages✅started a new book✅
 D visited and we went to O
 Talked to Ma and Ro had a successful delivery ❤️🙌🏽
-I am attending a CF tomorrow
+I am attend
 
 Baby I, Urakunzwe cyane, IMANA igufashe witume
 Today i went to a career affair and it was just aok. i gotta keep on applying and not get discouraged
