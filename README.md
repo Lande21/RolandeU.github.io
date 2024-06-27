@@ -15,10 +15,7 @@ it is possible and l time  and i am going to enjoy doing
 
 MIRACLE: ARE ALWAYS HAPPENING!
 Kaggle datasets, Day...
-read ✅10pages✅started a new book✅
-D visited and we went to O
-Talked to Ma and Ro had a successful delivery ❤️🙌🏽
-I am attend
+read ✅10pages✅started a new book
 
 Baby I, Urakunzwe cyane, IMANA igufashe witume
 Today i went to a career affair and it was just aok. i gotta keep on applying and not get discouraged
