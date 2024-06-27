@@ -21,6 +21,6 @@ Talked to Ma and Ro had a successful delivery ❤️🙌🏽
 I am attending a CF tomorrow at Allianz
 
 Baby I, Urakunzwe cyane, IMANA igufashe witume
-Today i
+Today i went to a career affair 
 
 
