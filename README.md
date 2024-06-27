@@ -1,4 +1,4 @@
- oh oh, Welcome...
+hay oh oh, Welcome...
 # RolandeU.github.io
 A portfolio GitHub webpage with a few bits of my work
 And the progress i have made in ios mobile development 
@@ -19,7 +19,8 @@ read ✅10pages✅started a new book✅
 D visited and we went to O
 Talked to Ma and Ro had a successful delivery ❤️🙌🏽
 I am attending a CF tomorrow at Allianz
-Babyy I
+
+Baby I, Urakunzwe cyane
 
 
 
