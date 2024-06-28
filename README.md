@@ -17,5 +17,5 @@ MIRACLE: ARE ALWAYS HAPPENING!
 Kaggle datasets, Day...
 
 Baby I, Urakunzwe cyane, IMANA igufashe witume, i pray for it 
-Today i went to a career affair and it was just aok. i gotta keep on applying and not get discouraged
+ aok. i gotta keep on applying and not get discouraged
 
