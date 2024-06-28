@@ -18,4 +18,4 @@ Kaggle datasets, Day...
 
 Baby I, Urakunzwe cyane, IMANA igufashe witume
 Today i went to a career affair and it was just aok. i gotta keep on applying and not get discouraged
-i gotta decide which laptop i deserve and for the work i will be doing 
+
