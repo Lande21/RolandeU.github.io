@@ -1,6 +1,6 @@
 hay oh oh, Welcome...
 # RolandeU.github.io
-A portfolio GitHub webpage with a few bits of my work
+A portfolio GitHub webpage with a few bits of my work in data
 And the progress i have made in ios mobile development 
 
 Daily Notes
