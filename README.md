@@ -14,7 +14,7 @@ rest up and start my portfolio ,
 it is possible and l time  and i am going to enjoy doing  
 
 MIRACLE: ARE ALWAYS HAPPENING!
-Kaggle datasets, Day...
+ datasets, Day...
 
 Baby I, Urakunzwe cyane, IMANA igufashe witume, i pray for it 
 
