@@ -17,6 +17,6 @@ it is possible and l time  and i am going to enjoy doing
 MIRACLE: ARE ALWAYS HAPPENING!
  datasets, Day...
 
-Baby I, Urakunzwe cyane, IMANA igufashe witume, i pray  
+Baby I, Urakunzwe cyane, IMANA igufashe witume  
 
 
