@@ -1,6 +1,6 @@
 ***Date : July, 1st, 2024***
 # RolandeU.github.io
-wake
+wake up, its the first of the month
 A portfolio GitHub webpage with a few bits of my work in data science
 And the progress i have made in ios mobile development 
 
