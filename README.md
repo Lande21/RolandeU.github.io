@@ -1,4 +1,4 @@
-***Date : July, 1st, 2024***
+***Date : July, 2nd, 2024***
 # RolandeU.github.io
 wake up, its the first of the month, Yay!!
 A portfolio GitHub webpage with a few bits of my work in data science
