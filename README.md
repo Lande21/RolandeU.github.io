@@ -6,7 +6,7 @@ And the progress i have made in ios mobile development
 
 Daily Notes
 Welcome BG Ivy🙌🏽❤️❤️❤️so so Thankful for GOD, Thank you! i can't waint to be the coull aunt i deserve to be
- four, three, two, one
+three, two, one
 I HIT 1K COMMITS
 ***Rewatching Criminal minds and upping my game on Kaggle***
 
