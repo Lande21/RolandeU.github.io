@@ -17,7 +17,7 @@ it is possible and l time  and i am going to enjoy doing
 MIRACLE: ARE ALWAYS HAPPENING!
  datasets, Day...
 
-Urakunzwe cyane, IMANA Igukuze Cyanee!
+Urakunzwe cyane, IMANA ikurinde Cyanee!
 Waiting for this stuff, m discs are on trial
 
 
