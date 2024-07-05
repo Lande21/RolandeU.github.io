@@ -11,7 +11,7 @@ I HIT 1K COMMITS
 ***Rewatching Criminal minds and upping my game on Kaggle***
 
 Occasion: 24
-Still waiting.........probably tonight 
+Still waiting.........in the morning around 10:15am it did 
 it is possible and l time  and i am going to enjoy doing  
 
 MIRACLE: ARE ALWAYS HAPPENING!
