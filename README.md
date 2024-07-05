@@ -19,5 +19,5 @@ MIRACLE: ARE ALWAYS HAPPENING!
 
 Urakunzwe cyane, IMANA ikurinde Cyanee!
 Waiting for this stuff, m discs are on trial
-w N A C, I d 
+w N A C, I got
 
