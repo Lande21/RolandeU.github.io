@@ -11,7 +11,7 @@ I HIT 1K COMMITS
 ***Rewatching Criminal minds and upping my game on Kaggle***
 
 Occasion: 24
-.........in the morning around 10:15am it did 
+.........in the morning around 10:15am it did , Day 2 8.2/10
 it is possible and l time  and i am going to enjoy doing  
 
 MIRACLE: ARE ALWAYS HAPPENING!
