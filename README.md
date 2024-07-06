@@ -12,7 +12,7 @@ I HIT 1K COMMITS
 
 Occasion: 24
 .........in the morning around 10:15am it did , Day 2 8.2/10
-it ible and l time  and i am going to enjoy doing  
+ l time  and i am going to enjoy doing  
 
 MIRACLE: ARE ALWAYS HAPPENING!
  datasets, Day...
