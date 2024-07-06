@@ -14,7 +14,7 @@ Occasion: 24
 .........in the morning around 10:15am it did , Day 2 8.2/10 
 
 MIRACLE: ARE ALWAYS HAPPENING!
- datasets, Day...
+ datasets are FUN, Day...
 
 Urakunzwe cyane, IMANA ikurinde Cyanee!
 
