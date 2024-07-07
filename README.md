@@ -5,7 +5,7 @@ A portfolio GitHub webpage with a few bits of my work in data science
 And the progress i have made in ios mobile development 
 
 Daily Notes
-Ivy🙌🏽❤️❤️❤️so so Thankful for GOD, Thank you! i can't waint to be the coull aunt i deserve to be
+Ivy🙌🏽❤️❤️❤️so so Thankful for GOD
 
 I HIT 1K COMMITS
 ***Rewatching Criminal minds and upping my game on Kaggle***
