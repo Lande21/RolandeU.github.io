@@ -1,6 +1,6 @@
-***Date : July,7th, 2024***
+***Date : July,7th, 2024 Happy Sunday🫶🏾***
 # RolandeU.github.io
-
+ 
 A portfolio GitHub webpage with a few bits of my work in data science
 And the progress i have made in ios mobile development 
 
