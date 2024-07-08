@@ -15,7 +15,7 @@ Occasion: 24
 
 MIRACLE: ARE ALWAYS HAPPENING!
  datasets loading
-- i went to church
+- i went to church by myself
 
 Urakunzwe cyane, IMANA ikurinde Cyanee!
 
