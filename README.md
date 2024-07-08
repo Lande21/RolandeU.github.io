@@ -18,6 +18,8 @@ MIRACLE: ARE ALWAYS HAPPENING!
 - i went to church by myself, called Mum and showed her the way and i grabbed caribou matcha
 i got a meeting at 10:30 for RTC mentorship tomorrow 
 and another at 11:30 , Lord i hope to be of help!
+
+- GOD will provide and he said to trust and LET HIM DO IT
 Urakunzwe cyane, IMANA ikurinde Cyanee!
 
 
