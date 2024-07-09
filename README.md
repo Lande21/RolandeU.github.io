@@ -5,7 +5,7 @@ A portfolio GitHub webpage with a few bits of my work in data science
 And the progress i have made in ios mobile development 
 
 Daily Notes
-Ivy🙌🏽❤️❤️❤️so so Thankful for GOD
+Ivy🙌🏽❤️❤️❤️so so Thankful for GOD, did RTC
 
 I HIT 1K COMMITS
 
