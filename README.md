@@ -8,7 +8,7 @@ Daily Notes
 Ivy🙌🏽❤️❤️❤️so so Thankful for GOD
 
 I HIT 1K COMMITS
-***Rewatching  and upping my game on Kaggle***
+***Rewatching  and upping***
 
 Occasion: 24
 .........in the morning around 10:15am it did , Day 4 4/10 
