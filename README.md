@@ -14,9 +14,7 @@ Occasion: 24
 .........in the morning around 10:15am it did , Day 6 mood 10 
 
 MIRACLE: ARE ALWAYS HAPPENING!
- datasets loading
-
-, Lord Thank you!
+ Lord Thank you!
 
 - GOD will provide and he said to trust and LET HIM DO IT
 Urakunzwe cyane, IMANA ikurinde Cyanee!
