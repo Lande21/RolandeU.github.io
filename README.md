@@ -8,7 +8,7 @@ Daily Notes
 Ivy🙌🏽❤️❤️❤️so so Thankful for GOD, did RTC....Lord help me to see what i am meant to do
 
 I HIT 1K COMMITS
-
+read Abook today 💚
 
 Occasion: 24
  10:15am , Day 6 mood 10 
