@@ -15,7 +15,7 @@ Occasion: 24
 
 MIRACLE: ARE ALWAYS HAPPENING!
  Lord You did it Again! it went well
-we went to oakdale to start packing 
+
 
 - GOD will provide and he said to trust and LET HIM DO IT
 Urakunzwe cyane, IMANA ikurinde Cyanee!
