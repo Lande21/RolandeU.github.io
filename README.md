@@ -5,7 +5,7 @@ A portfolio GitHub webpage with a few bits of my work in data science
 And the progress i have made in ios mobile development 
 
 Daily Notes
-Ivy🙌🏽❤️❤️❤️Lord help me to see what i am meant to do and be in alignment 
+Ivy🙌🏽❤️❤️❤️Lord help me to see what i am meant to do and be in alignment with your plan , 💚🙏🏾 
 
 I HIT 1K COMMITS
 read Abook today 💚
