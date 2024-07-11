@@ -19,7 +19,7 @@ MIRACLE: ARE ALWAYS HAPPENING!
 
 - GOD will provide and he said to trust and LET HIM DO IT
 Urakunzwe cyane, IMANA ikurinde Cyanee!
-Kiberinka actuellement 
+Kiberinka actuellement for IVY
 
 
 
