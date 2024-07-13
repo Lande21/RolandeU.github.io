@@ -1,7 +1,7 @@
 #***Date : July,12th, 2024 Happy Wednesday 🫶🏾***
 # RolandeU.github.io
  
-A portfolio GitHub webpage with a few bits of my work in data science
+A portfolio GitHub webpage with a few bits of my work throughout my career
 And the progress i have made in ios mobile development 
 
 Daily Notes
