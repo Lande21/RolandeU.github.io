@@ -15,8 +15,7 @@ Occasion: 24
 MIRACLE: ARE ALWAYS HAPPENING!
  Lord You did it Again! it went well
 
-
-- GOD will provide and he said to trust and LET HIM DO IT
+GOD will provide 
 Urakunzwe cyane, IMANA ikurinde Cyanee!
 Kiberinka actuellement for IVY
 
