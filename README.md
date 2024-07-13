@@ -7,13 +7,13 @@ Daily Notes
 Ivy🙌🏽❤️❤️❤️Lord help me to see what i am meant to do and be in alignment  💚🙏🏾 
 
 I HIT 1K COMMITS
-read Abook today 💚
+read book today page 170💚
 
 Occasion: 24
  10:15am , Day 9
 
 MIRACLE: ARE ALWAYS HAPPENING!
- Lord You did it Again! it went well
+Lord You did it Again!
 
 GOD will provide 
 Urakunzwe cyane, IMANA ikurinde Cyanee!
