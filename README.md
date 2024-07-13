@@ -2,10 +2,9 @@
 # RolandeU.github.io
  
 A portfolio GitHub webpage with a few bits of my work throughout my career
-And the progress i
 
 Daily Notes
-Ivy🙌🏽❤️❤️❤️Lord help me to see what i am meant to do and be in alignment with your plan , 💚🙏🏾 
+Ivy🙌🏽❤️❤️❤️Lord help me to see what i am meant to do and be in alignment  💚🙏🏾 
 
 I HIT 1K COMMITS
 read Abook today 💚
