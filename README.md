@@ -2,7 +2,7 @@
 # RolandeU.github.io
  
 A portfolio GitHub webpage with a few bits of my work throughout my career
-And the progress i have made in ios mobile development 
+And the progress i have made in
 
 Daily Notes
 Ivy🙌🏽❤️❤️❤️Lord help me to see what i am meant to do and be in alignment with your plan , 💚🙏🏾 
