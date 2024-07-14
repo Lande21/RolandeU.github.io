@@ -13,7 +13,7 @@ Occasion: 24
  Day 11
 
 MIRACLE: ARE ALWAYS HAPPENING!
-Lord You did it Again!
+Lord did it Again!
 
 GOD will provide 
 Urakunzwe cyane, IMANA ikurinde Cyanee!
