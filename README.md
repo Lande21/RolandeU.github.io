@@ -17,7 +17,7 @@ Lord did it Again!
 
 GOD will provide
 Urakunzwe cyane, IMANA ikurinde Cyanee!
-Kiberinka actuellement for IVY
+
 
 
 
