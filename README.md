@@ -1,7 +1,7 @@
 #***Date : July,13th, 2024 Happy Wednesday 🫶🏾***
 # RolandeU.github.io
  
-A portfolio GitHub webpage with a few bits of my work throughout my career
+A portfolio GitHub webpage with a few bits of my work throughout my career.
 
 Daily Notes
 Ivy🙌🏽❤️❤️❤️Lord help me to see what i am meant to do and be in alignment  💚🙏🏾 
