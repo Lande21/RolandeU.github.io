@@ -4,7 +4,7 @@
 A portfolio GitHub webpage with a few bits of my work throughout my career.
 
 Daily Notes
-Ivy🙌🏽❤️Lord help me to see what i am meant to do and be in alignment  💚🙏🏾 
+Ivy🙌🏽❤️Lord help me to see what to do and be in alignment  💚🙏🏾 
 
 I HIT 1K COMMITS
 read book today page 170💚
