@@ -7,7 +7,7 @@ Daily Notes
 Ivy🙌🏽❤️Lord help me to do and be in alignment  💚🙏🏾 
 
 I HIT 1K COMMITS
-read book today page 170💚
+read book today page 220💚
 
 Occasion: 24
  Day 11
