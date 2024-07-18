@@ -16,7 +16,7 @@ MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it Again! Beautiful miracle, i talkd to eduu
 
 GOD will provide always 
-Urakunzwe cyane, IMANA ikurinde Cyanee!
+Urakunzwe cyane, IMANA iraturinze Cyanee!
 
 
 
