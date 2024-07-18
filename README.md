@@ -7,7 +7,7 @@ Daily Notes:
 Ivy🙌🏽❤️Lord help me to do and be in alignment  💚🙏🏾 Imana ninziza
 
 I HIT 1K COMMITS
-read book today page 230💚
+read book today page 230💚fnished the book, yay!!!
 
 Occasion: 24
  Day 17
