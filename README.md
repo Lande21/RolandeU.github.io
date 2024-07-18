@@ -1,9 +1,9 @@
-***Date : July,16th, 2024 Happy Wednesday 🫶🏾***
+***Date : July, 17th 2024 Happy Wednesday 🫶🏾***
 # RolandeU.github.io
  
 A portfolio GitHub webpage with a few bits of my work throughout my career.
 
-Daily Notes
+Daily Notes:
 Ivy🙌🏽❤️Lord help me to do and be in alignment  💚🙏🏾 
 
 I HIT 1K COMMITS
