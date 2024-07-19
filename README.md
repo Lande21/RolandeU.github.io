@@ -15,7 +15,7 @@ Day 18
 MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it Again! Beautiful miracle, i talkd to eduu
 
-GOD will provide always 
+GOD will provide always 100%
 Urakunzwe cyane, IMANA iraturinze Cyanee!
 
 
