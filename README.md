@@ -9,8 +9,8 @@ Ivy🙌🏽❤️Lord help me to do and be in alignment  💚🙏🏾 Imana ninz
 I HIT 1.5K COMMITS YAY!!!
 read book today page 230💚finally finished the book, yay!!!
 
-Occasion: 24
- Day 17
+Occasion: 24'
+Day 18
 
 MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it Again! Beautiful miracle, i talkd to eduu
