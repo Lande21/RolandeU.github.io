@@ -9,7 +9,7 @@ Ivy🙌🏽❤️Lord help me to do and be in alignment  💚🙏🏾 Imana ninz
 I HIT 1.5K COMMITS YAY!!!
 read book today page 230💚finally finished the book, Looking for a new book
 
-I got the offer letter and i am waiting for the 
+I got the offer letter and i am waiting for the next step
 
 Occasion: 24'
 Day 18
