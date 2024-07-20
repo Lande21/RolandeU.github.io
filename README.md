@@ -1,4 +1,4 @@
-***Date : July, 19th 2024 Happy Thursday 🫶🏾***
+***Date : July, 19th 2024 Happy Friday 🫶🏾***
 # RolandeU.github.io
  
 A portfolio GitHub webpage with a few bits of my work throughout my career. Ask awayyyy
