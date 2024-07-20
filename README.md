@@ -1,7 +1,7 @@
 ***Date : July, 19th 2024 Happy Friday 🫶🏾***
 # RolandeU.github.io
  
-A portfolio GitHub webpage with a few bits of my work throughout my career. Ask awayyyy
+A portfolio GitHub webpage with a few bits of my work throughout my career. Ask away
 
 Daily Notes:
 Ivy🙌🏽❤️Lord help me to do and be in alignment  💚🙏🏾 Imana ninziza ALWAYS GIVE US WHATS BEST
