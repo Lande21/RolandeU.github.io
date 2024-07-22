@@ -12,7 +12,7 @@ read book today page 230💚finally finished the book, Looking for a new book
 I got the offer letter and i am waiting for the next step :)
 
 Occasion: 24'
-Went to Duluth and loved itttt
+Went to Duluth and loved it except the festival 
 
 MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it Again! Beautiful miracle, i talkd to eduu
