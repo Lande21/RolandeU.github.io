@@ -7,7 +7,8 @@ Daily Notes:
 Ivy🙌🏽❤️Lord help me to do and be in alignment  💚🙏🏾 Imana ninziza Cyane!
 
 I HIT 1.5K COMMITS YAY!!!
-read book today page 230💚finally finished the book, Looking for a new book
+read book today page 230💚finally finished the book, Looking for a new book, 
+Went to the library today....
 
 I got the offer letter and i am waiting for the next step :)
 
