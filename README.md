@@ -13,7 +13,7 @@ Went to the library today....got a library card and a new book :)
 I got the offer letter and i am waiting for the next step :)
 
 Occasion: 24'
-Went to Duluth and loved it excep
+Went to Duluth and lo
 
 MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it Again! 
