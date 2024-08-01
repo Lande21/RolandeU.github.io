@@ -16,7 +16,7 @@ Occasion: 24'
 Went to Duluth and loved it except the festival 
 
 MIRACLE: ARE ALWAYS HAPPENING!
-Lord did it Again! Beautiful ll, i talkd to eduu
+Lord did it Again! Beautiful ll,
 
 GOD will provide always 100%. I just love GOD SO MUCH
 Urakunzwe cyane, IMANA iraturinze Buri munsi!!!!
