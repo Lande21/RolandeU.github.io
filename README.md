@@ -13,7 +13,6 @@ Went to the library today....got a library card and a new book :)
 I got the offer letter and i am waiting for the next step :)
 
 Occasion: 24'
-Went t
 
 MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it Again! 
