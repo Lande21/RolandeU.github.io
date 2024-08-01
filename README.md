@@ -1,4 +1,4 @@
-***Date : July, , 2024 Happy Saturday 🫶🏾***
+***Date : July, 31, 2024 Happy Saturday 🫶🏾***
 # RolandeU.github.io
  
 A portfolio GitHub webpage with a few bits of my work throughout my career. Ask away
