@@ -4,7 +4,7 @@
 A portfolio GitHub webpage with a few bits of my work throughout my career.
 
 Daily Notes:
-Ivy🙌🏽❤️Lord help me to do and be in alignment  💚🙏🏾 Imana ninziza Cyane!
+Ivy🙌🏽❤️Lord help me be in alignment  💚🙏🏾 Imana ninziza Cyane!
 
 I HIT 1.5K COMMITS YAY!!!
 - read book today page 230💚finally finished the book, Looking for a new book, 
