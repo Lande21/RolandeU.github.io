@@ -1,4 +1,4 @@
-***Date : 2024 Happy Saturday 🫶🏾***
+***Date : 2024 Happy 1st of the month, ThurFridayy 🫶🏾***
 # RolandeU.github.io
  
 A portfolio GitHub webpage with a few bits of my work throughout my career.
