@@ -16,7 +16,7 @@ MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it Again! 
 
 GOD will provide always 100%. I just love GOD SO MUCH
-may Gacamuziko r e
+
 
 
 
