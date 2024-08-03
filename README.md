@@ -13,7 +13,7 @@ Went to the library today....got a library card and a new book :)
 Occasion: 24'
 
 MIRACLE: ARE ALWAYS HAPPENING!
-Lord did it Again! 
+Lord did it Again! :)
 
 GOD will provide always 100%. I just love GOD SO MUCH
 
