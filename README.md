@@ -1,4 +1,4 @@
-***Date : 2024 Happy , Thursday 🫶🏾***
+***Date : 2024 , Thursday 🫶🏾***
 # RolandeU.github.io
  
 A portfolio GitHub webpage with a few bits of my work throughout my career.
