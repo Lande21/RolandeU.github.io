@@ -1,7 +1,7 @@
-***Date : August 3rd ,2024. Friday ***
+***Date : August 3rd,2024. Friday ***
 # RolandeU.github.io
  
-A portfolio GitHub webpage with a few bits of my work throughout my career.
+A portfolio GitHub webpage with a few bits of my work throughout my career. And daily logs
 
 Daily Notes:
 Ivy🙌🏽❤️💚🙏🏾 Imana ninziza Cyane!
