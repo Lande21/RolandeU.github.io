@@ -7,7 +7,7 @@ Daily Notes:
 Ivy🙌🏽❤️💚🙏🏾 Imana ninziza Cyane!
 We, m & d to get ice cream
 
-I HIT 1.5K COMMITS YAY!!!
+I HIT 1.7K COMMITS YAY!!!
 - read book today page 230💚finally finished the book, Looking for a new book, 
 Went to the library today....got a library card and a new book :)
 
