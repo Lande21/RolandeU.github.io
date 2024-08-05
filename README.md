@@ -1,4 +1,4 @@
-***Date : August 4th,2024. Saturday ***
+***Date : August 4th,2024. Sunday ***
 # RolandeU.github.io
  
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily logs....
@@ -11,7 +11,7 @@ I HIT 1.7K COMMITS YAY!!!
 - read book today page 230💚finally finished the book, Looking for a new book, 
 
 
-Occasion: 24'
+Occasion: 2
 
 MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it Again! :)
