@@ -11,7 +11,7 @@ I HIT 1.7K COMMITS YAY!!!
 - read book today page 230💚finally finished the book, Looking for a new book, 
 
 
-Occasion: 2
+Occasion: 24'
 
 MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it Again! :)
