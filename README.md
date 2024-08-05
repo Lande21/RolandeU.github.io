@@ -5,7 +5,7 @@ A portfolio GitHub webpage with a few bits of my work throughout my career. And 
 
 Daily Notes:
 Ivy🙌🏽❤️💚🙏🏾 Imana ninziza Cyane!
-We, m & d to get ice cream, thrift, fish
+I made new friends and family
 
 I HIT 1.7K COMMITS YAY!!!
 - read book today page 230💚finally finished the book, Looking for a new book, 
