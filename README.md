@@ -8,8 +8,6 @@ Ivy🙌🏽❤️💚🙏🏾 Imana ninziza Cyane!
 I made new friends and family!! from Cameroon :)
 
 I HIT 1.7K COMMITS YAY!!!
- for a ne
-
 
 Occasion: 24'
 
