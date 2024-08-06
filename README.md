@@ -8,7 +8,7 @@ Ivy🙌🏽❤️💚🙏🏾 Imana ninziza Cyane!
 I made new friends and family!! from Cameroon :)
 
 I HIT 1.7K COMMITS YAY!!!
- 230💚finally finished the book, Looking for a new book, 
+finished the book, Looking for a new book, 
 
 
 Occasion: 24'
