@@ -16,6 +16,7 @@ Lord did it Again!
 Few hours till i moooov
 GOD will provide always 100%. I just love GOD SO MUCH
 God is great
+I hope the place is good
 
 
 
