@@ -13,7 +13,7 @@ Occasion: 24'
 
 MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it Again! 
-Few hours till i moooov
+Few hours till 
 GOD will provide always 100%. I just love GOD SO MUCH
 God is great
 I hope the place is good
