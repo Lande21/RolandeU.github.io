@@ -1,4 +1,4 @@
-***Date : August 6th,2024. Monday ***
+***Date : August 6th,2024. Tuesday ***
 # RolandeU.github.io
  
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily logs....
