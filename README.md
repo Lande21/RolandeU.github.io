@@ -1,6 +1,6 @@
 ***Date : August 7th,2024. Wednesday ***
 # RolandeU.github.io
- Happy Birthday
+
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily logs....
 
 Daily Notes:
