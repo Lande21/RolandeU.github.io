@@ -15,7 +15,7 @@ MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it Again! 
 GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 
-I hope the place is good
+I hope the place 
 
 
 
