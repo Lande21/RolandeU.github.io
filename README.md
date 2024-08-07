@@ -14,7 +14,7 @@ Occasion: 24'
 MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it Again! 
 GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
-God is great
+God 
 I hope the place is good
 
 
