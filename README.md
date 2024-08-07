@@ -15,6 +15,7 @@ MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it Again! :)
 
 GOD will provide always 100%. I just love GOD SO MUCH
+God is great
 
 
 
