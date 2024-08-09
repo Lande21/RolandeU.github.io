@@ -13,8 +13,7 @@ Occasion: 24'
 
 MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it! 
-GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
-pp yasigaye wenyine😭😭😭
+GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!so sad disi ariko azamenyera
 
 
 
