@@ -4,7 +4,7 @@
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily logs....
 
 Daily Notes:
-Ivy🙌🏽❤️💚🙏🏾 Imana ninziza Cyane!
+Ivy🙌🏽💚🙏🏾 Imana ninziza Cyane!
 friends and family!! from Cameroon :)
 
 I HIT 1.7K COMMITS YAY!!!
