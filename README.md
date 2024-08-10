@@ -5,7 +5,7 @@ A portfolio GitHub webpage with a few bits of my work throughout my career. And 
 
 Daily Notes:
 💚🙏🏾 Imana ninziza Cyane!
-friends and family!! from 
+friends and family 
 
 I HIT 1.7K COMMITS YAY!!!
 
