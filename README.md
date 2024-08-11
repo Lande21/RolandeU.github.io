@@ -12,7 +12,10 @@ I HIT 1.7K COMMITS YAY!!!
 - I went for a walk, saw people from ss
 - MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it! PP made ikinono sha!
-GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!ALWAYS!
+GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
+ALWAYS!
+
+Day2 no friends yet...
 
 
 
