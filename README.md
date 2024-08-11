@@ -8,7 +8,7 @@ Daily Notes:
 
 I HIT 1.7K COMMITS YAY!!!
 
-Occasion: 24'
+- Occasion: 24'
 I went for a walk, saw people from ss
 MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it! 
