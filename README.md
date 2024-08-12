@@ -17,7 +17,8 @@ ALWAYS!
 Day 3 i made two friends:
 Nfi and Em
 
-
+one uncomfortable thing a day!
+- Scheduled a meetup
 
 
 
