@@ -15,7 +15,8 @@ Lord did it! PP made ikinono sha!
 GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
-Day 3 i made two friends 
+Day 3 i made two friends:
+Nfi and Em
 
 
 
