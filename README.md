@@ -9,7 +9,7 @@ Daily Notes:
 I HIT 1.7K COMMITS YAY!!!
 
 - Occasion: 24'
-- I went for a walk, saw 
+- I went for 
 - MIRACLE: ARE ALWAYS HAPPENING!
 Lord did it! PP made ikinono sha!
 GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
