@@ -20,6 +20,7 @@ Ivory coast-E
 Cameroon-N
 Bangladesh-P
 one uncomfortable thing a day!
+Attended the zoom
 
 
 
