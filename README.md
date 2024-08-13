@@ -17,7 +17,7 @@ ALWAYS!
 Day 4 i made two friends:
 
 one uncomfortable thing a day!
-should i get it???
+should i get it??? or not?
 
 
 
