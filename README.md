@@ -1,4 +1,4 @@
-***Date : August 12th,2024. Sunday *** Happy Monday!!
+***Date : August 12th,2024 *** Happy Monday!!!
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily logs....
