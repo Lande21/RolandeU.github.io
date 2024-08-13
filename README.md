@@ -17,7 +17,7 @@ ALWAYS!
 Day 4 i made two friends:
 
 one uncomfortable thing a day!
-- Scheduled a meetup with bus
+should i get it???
 
 
 
