@@ -14,8 +14,11 @@ Lord did it! PP made ikinono sha!
 GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
-Day 4 i made two friends:
+Day 4 i made two+Another  friends:
 
+Ivory coast-E
+Cameroon-N
+Bangladesh-P
 one uncomfortable thing a day!
 
 
