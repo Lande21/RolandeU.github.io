@@ -20,7 +20,7 @@ Ivory coast-E
 Cameroon-N
 Bangladesh-P
 one uncomfortable thing a day!
-Attended the zoom :), five yrs ago i was dreamng of this moment!!
+Took a bus and we are connected!, five yrs ago i was dreamng of this moment!!
 
 
 
