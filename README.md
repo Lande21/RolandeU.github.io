@@ -21,7 +21,7 @@ Cameroon-N
 Bangladesh-P
 one uncomfortable thing a day!
 Took a bus and we are connected!, five yrs ago i was dreamng of this moment!!
-Submiyyed 
+Talked to R
 
 
 
