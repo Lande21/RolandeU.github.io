@@ -15,6 +15,7 @@ GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
 Day 5, i made 2+1 friends:
+Week one complete!
 
 Ivory coast-E
 Cameroon-N
