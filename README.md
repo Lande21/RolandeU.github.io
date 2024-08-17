@@ -15,8 +15,7 @@ GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
 Day 7, i made 2+1 friends:
-
-
+Papa called me :)
 
 Ivory coast-E
 Cameroon-N
