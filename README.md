@@ -1,4 +1,4 @@
-***Date : August 16th,2024 *** Thursday, Been lots of Birthdays 
+***Date : August 16th,2024 *** Friday
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily logs....
