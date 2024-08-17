@@ -22,7 +22,7 @@ Cameroon-N
 Bangladesh-P
 one uncomfortable thing a day!
 Took a bus and we are connected!, five yrs ago i was dreamng of this moment!!
-Went on a walk to the park
+Its been exactly 5 years since i came to the US
 Made dinner
 
 
