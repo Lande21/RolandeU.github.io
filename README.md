@@ -26,7 +26,7 @@ I took a bus to ALdi US,
 Shopped and maintained the budget ,
 I was very considerate of my budget
 May i find what GOD has prepared for me
-Make cornbread
+Made isombe with gnd trky and it was so yummy with ptts
 sTARTED TO rEAD THE ds BOOK! yayyy
 
 
