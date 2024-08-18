@@ -15,7 +15,7 @@ GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
 Day 9, i made 2+1 friends:
-Papa called me :), lhsm
+Papa, Diama called me :), lhsm
 
 Ivory coast-E
 Cameroon-N
