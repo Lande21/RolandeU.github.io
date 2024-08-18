@@ -22,7 +22,8 @@ Cameroon-N
 Bangladesh-P
 one uncomfortable thing a day!
 Took a bus and we are connected!, five yrs ago i was dreamng of this moment!!
-I took a bus to ALdi US, May i find what GOD has prepared for me
+I took a bus to ALdi US, 
+Shopped and maintained the budget ,May i find what GOD has prepared for me
 Make cornbread
 sTARTED TO rEAD THE ds BOOK!
 
