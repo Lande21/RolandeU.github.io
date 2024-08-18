@@ -28,7 +28,7 @@ I was very considerate of my budget
 May i find what GOD has prepared for me
 Made isombe with gnd trky and it was so yummy with ptts
 Hit 10k steps yayyyyyy!!!
-sTARTED TO rEAD THE ds BOOK! yayyy
+sTARTED TO rEAD THE ds BOOK! very demure with my time :)
 
 
 
