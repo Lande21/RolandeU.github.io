@@ -27,7 +27,7 @@ Shopped and maintained the budget ,
 I was very considerate of my budget
 May i find what GOD has prepared for me
 Make cornbread
-sTARTED TO rEAD THE ds BOOK!
+sTARTED TO rEAD THE ds BOOK! yayyy
 
 
 
