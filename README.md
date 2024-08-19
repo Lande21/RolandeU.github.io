@@ -21,7 +21,7 @@ Ivory coast-E
 Cameroon-N
 Bangladesh-P
 one uncomfortable thing a day!
-Took a bus and we are connected!, five yrs ago i was dreamng of this moment!!
+ connected!, five yrs ago i was dreamng of this moment!!
 I took a bus to ALdi US, 
 Shopped and maintained the budget ,
 I was very considerate of my budget
