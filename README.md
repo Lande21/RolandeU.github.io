@@ -14,7 +14,7 @@ Lord did it! I went to spectrummm, Made my Neice laugh
 GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
-Day 9, i made 2+1 friends:
+Day 10, i made 2+1 friends:
 Papa, Diama called me :), lhsm
 
 Ivory coast-E
