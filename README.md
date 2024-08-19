@@ -21,8 +21,7 @@ Ivory coast-E
 Cameroon-N
 Bangladesh-P
 one uncomfortable thing a day!
-five yrs ago i was dreamng of this moment!!
-I took a bus to ALdi US, 
+five yrs ago i was dreamng of this moment!!we went to walmart yigirishwa nkuwasize wallet
 Shopped and maintained the budget ,
 I was very considerate of my budget
 May i find what GOD has prepared for me
