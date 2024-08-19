@@ -24,6 +24,8 @@ one uncomfortable thing a day!
 five yrs ago i was dreamng of this moment!!
 I was very considerate of my budget
 May i find what GOD has prepared for me
+
+Church day 
 Made isombe with gnd trky and it was so yummy with ptts
 Hit 10k steps yayyyyyy!!!
 sTARTED TO rEAD THE ds BOOK! very demure with my time :)
