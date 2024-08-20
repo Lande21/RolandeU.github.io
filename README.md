@@ -18,8 +18,9 @@ Pa, Dia, Car called me :), lhsm
 
 Ivory coast-E
 Cameroon-N
-Bangladesh-P
+
 one uncomfortable thing a day!
+
 five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
 May i find what GOD has prepared for me
