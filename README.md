@@ -17,7 +17,7 @@ Day 10, i made 2+1 friends:
 Pa, Dia, Car called me :), lhsm
 
 Ivory coast-E
-Cameroon-N
+
 
 one uncomfortable thing a day!
 
