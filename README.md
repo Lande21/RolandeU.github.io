@@ -28,7 +28,7 @@ May i find what GOD has prepared for me
 Church day , good sombe with rice
 Made isombe with gnd trky and it was so yummy with ptts
 Hit 10k steps yayyyyyy!!!
-sTARTED TO rEAD THE ds BOOK! very demure with my time :)
+
 
 
 
