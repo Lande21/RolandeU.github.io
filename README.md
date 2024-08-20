@@ -23,8 +23,7 @@ five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
 May i find what GOD has prepared for me
 
-
-Hit 10k steps yayyyyyy!!!
+I went on a walk 💚
 
 
 
