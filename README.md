@@ -1,7 +1,7 @@
 ***Date : August 19th,2024 *** Happy Mondayyyy
 # RolandeU.github.io
 
-A portfolio GitHub webpage with a few bits of my work throughout my career. And daily logs....
+A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
 
 Daily Notes:
 💚🙏🏾 Imana ninziza Cyane! MAY HE PROTECT US!
