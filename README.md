@@ -14,7 +14,7 @@ GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
 Day 10, i made 2+1 friends:
-Papa, Diama called me :), lhsm
+Pa, Dia, Car called me :), lhsm
 
 Ivory coast-E
 Cameroon-N
@@ -24,7 +24,7 @@ five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
 May i find what GOD has prepared for me
 
-Church day , good sombe with rice
+Church day , good isombe with rice
 Hit 10k steps yayyyyyy!!!
 
 
