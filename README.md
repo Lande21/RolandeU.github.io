@@ -16,8 +16,6 @@ ALWAYS!
 Day 10, i made 2+1 friends:
 Pa, Dia, Car called me :), lhsm
 
-Ivory coast-E
-
 
 one uncomfortable thing a day!
 
