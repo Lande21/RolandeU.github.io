@@ -10,7 +10,6 @@ I HIT 1.7K COMMITS YAY!!!
 
 - Occasion: 24'
 - MIRACLE: ARE ALWAYS HAPPENING!
-Lord did it! I went to spectrummm, Made my Neice laugh
 GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
@@ -21,7 +20,7 @@ Ivory coast-E
 Cameroon-N
 Bangladesh-P
 one uncomfortable thing a day!
-five yrs ago i was dreamng of this moment!!
+five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
 May i find what GOD has prepared for me
 
