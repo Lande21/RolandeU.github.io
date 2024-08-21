@@ -15,7 +15,7 @@ ALWAYS!
 
 Day 11, i made 2+1+1 friends:
 
-one uncomfortable thing a day!
+one uncomfortable thing a day!Cramping
 
 five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
