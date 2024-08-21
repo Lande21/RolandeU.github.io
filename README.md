@@ -19,7 +19,7 @@ one uncomfortable thing a day!
 
 five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
-Tried to register for classes
+
 May i find what GOD has prepared for me
 
 I went on a walk 💚
