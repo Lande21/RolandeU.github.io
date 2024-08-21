@@ -14,8 +14,6 @@ GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
 Day 11, i made 2+1+1 friends:
-Pa, Dia, Car called me :), lhsm
-
 
 one uncomfortable thing a day!
 
