@@ -13,7 +13,7 @@ I HIT 1.7K COMMITS YAY!!!
 GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
-Day 10, i made 2+1 friends:
+Day 11, i made 2+1+1 friends:
 Pa, Dia, Car called me :), lhsm
 
 
