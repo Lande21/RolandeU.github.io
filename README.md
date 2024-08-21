@@ -21,7 +21,7 @@ one uncomfortable thing a day!
 
 five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
-Paid the insurance
+Paid the insurance, Dad is amazing
 May i find what GOD has prepared for me
 
 I went on a walk 💚
