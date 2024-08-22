@@ -23,7 +23,7 @@ I was very considerate of my budget
 
 May i find what GOD has prepared for me
 
-I went on a walk 💚
+I went on a walk 💚💚
 
 
 
