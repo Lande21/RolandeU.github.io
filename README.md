@@ -17,6 +17,7 @@ Day 12, i made 2+1+1+1+1+1+1 friends:
 
 one uncomfortable thing a day!
 Chad
+Libya
 
 five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
