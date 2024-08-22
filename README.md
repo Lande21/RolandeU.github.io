@@ -19,6 +19,7 @@ one uncomfortable thing a day!
 Chad
 Libya
 Egypt
+Ghana
 
 five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
