@@ -21,7 +21,7 @@ Libya
 Egypt
 Ghana
 Nepal
-Gotta be serious
+meet with my advisor
 
 five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
