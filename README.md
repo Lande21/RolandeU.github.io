@@ -13,7 +13,7 @@ I HIT 1.7K COMMITS YAY!!!
 GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
-Day 13, i made 2+1+1+1+1+1+1 friends:
+Day 13, i made 2+1+1+1+1+1+1+1 friends:
 
 one uncomfortable thing a day!
 Chad
