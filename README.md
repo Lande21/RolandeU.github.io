@@ -22,6 +22,7 @@ Egypt
 Ghana
 Nepal
 meet with my advisor
+emailllllll 2 people
 
 five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
