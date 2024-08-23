@@ -20,6 +20,7 @@ Chad
 Libya
 Egypt
 Ghana
+Nepal
 
 five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
