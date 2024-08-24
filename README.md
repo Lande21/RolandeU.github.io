@@ -25,6 +25,7 @@ Costa Rica
 meet with my advisor
 emailllllll 1 person
 God loves me dearly, May He guide my sisy
+Aldi and meal prerp tomorrow
 I Dedicate this semester to you lord
 
 
