@@ -21,6 +21,7 @@ Libya
 Egypt
 Ghana
 Nepal
+Costa Rica
 meet with my advisor
 emailllllll 2 people
 
