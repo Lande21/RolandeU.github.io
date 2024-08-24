@@ -9,7 +9,7 @@ Daily Notes:
 I HIT 1.7K COMMITS YAY!!!
 
 - Occasion: 24'
-- MIRACLE: ARE ALWAYS HAPPENING!
+- MIRACLE: ARE ALWAYS HAPPENING!ALWAYS!
 GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
@@ -25,6 +25,7 @@ Costa Rica
 meet with my advisor
 emailllllll 1 person
 God loves me dearly, May He guide my sisy
+
 
 five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
