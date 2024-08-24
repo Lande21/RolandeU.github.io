@@ -23,7 +23,7 @@ Ghana
 Nepal
 Costa Rica
 meet with my advisor
-emailllllll 2 people
+emailllllll 1 person
 
 five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
