@@ -24,7 +24,7 @@ Nepal
 Costa Rica
 meet with my advisor
 emailllllll 1 person
-God loves me dearly
+God loves me dearly, May He guide my sisy
 
 five yrs ago i was dreaming of this moment!!
 I was very considerate of my budget
