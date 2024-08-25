@@ -18,11 +18,7 @@ Day 15, i made 2+1+1+1+1+1+1+1 friends:
 one uncomfortable thing a day!
 
 Bangladesh , P we went on a walk
-Egypt
-Ghana
-Nepal
-Costa Rica
-meet with my advisor
+Happy one month Ivy, bby :)
 emailllllll 1 person
 God loves me dearly, May He guide my sisy
 Aldi and meal prerp tomorrow
