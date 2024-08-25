@@ -30,7 +30,7 @@ I Dedicate this semester to you lord
 
 
 five yrs ago i was dreaming of this moment!!
-I was very considerate of my budget
+I was very considerate of my budget Aldi,GW
 
 May i find what GOD has prepared for me....
 
