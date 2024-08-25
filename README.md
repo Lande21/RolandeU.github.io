@@ -18,8 +18,6 @@ Day 15, i made 2+1+1+1+1+1+1+1 friends:
 one uncomfortable thing a day!
 
 Bangladesh , P we went on a walk
-Chad
-Libya
 Egypt
 Ghana
 Nepal
