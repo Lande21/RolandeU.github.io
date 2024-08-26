@@ -19,7 +19,7 @@ one uncomfortable thing a day!
 
 Bangladesh , P we went on a walk
 Happy one month Ivy, bby :)
-emailllllll 1 person
+emailllllll 1 person, Emphasies my research!
 God loves me dearly, May He guide my sisy
 CHURCH !
 I Dedicate this semester to you lord
