@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
-Day 16, i made 2+1+1+1+1+1+1+1 friends:
+Day 16, i made 2+1+1+1+1+1+1+1+1+1+1 friends:
 
 one uncomfortable thing a day!
 
