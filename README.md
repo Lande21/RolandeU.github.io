@@ -21,7 +21,7 @@ Bangladesh , P we went on a walk
 Happy one month Ivy, bby :)
 emailllllll 1 person
 God loves me dearly, May He guide my sisy
-Aldi and meal prerp tomorrow YAY, DONE!
+CHURCH !
 I Dedicate this semester to you lord
 
 
