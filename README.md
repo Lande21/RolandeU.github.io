@@ -15,7 +15,7 @@ ALWAYS!
 
 Day 16, i made 2+1+1+1+1+1+1+1+1+1+1 friends:Bizaza ntrb
 
-one uncomfortable thing a day!
+one uncomfortable thing a day!I called Mum!
 
 Bangladesh , P we went on a walk
 Happy one month Ivy, bby :)
