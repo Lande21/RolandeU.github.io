@@ -22,10 +22,6 @@ Emphasies my research!
 God loves me dearly, May He guide my sisy
 I Dedicate this semester to you lord
 
-
-five yrs ago i was dreaming of this moment!!
-
-
 May i find what GOD has prepared for me....First day of shool tomorrow, super excited 
 
 I went on a walk 💚💚💚
