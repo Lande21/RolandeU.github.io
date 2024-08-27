@@ -17,7 +17,7 @@ Day 16, i made 2+1+1+1+1+1+1+1+1+1+1 friends:Bizaza ntrb
 
 one uncomfortable thing a day!I called Mum!
 
-Bangladesh , P we went on a walk
+Bangladesh , P we we
 Happy one month Ivy, bby :)
 emailllllll 1 person, Emphasies my research!
 God loves me dearly, May He guide my sisy
