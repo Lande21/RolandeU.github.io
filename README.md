@@ -20,7 +20,6 @@ one uncomfortable thing a day!I called Mum!
 Happy one month Ivy, bby :)
 emailllllll 1 person, Emphasies my research!
 God loves me dearly, May He guide my sisy
-CHURCH !
 I Dedicate this semester to you lord
 
 
