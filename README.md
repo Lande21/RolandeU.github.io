@@ -22,7 +22,7 @@ Emphasies my research!
 God loves me dearly, May He guide my sisy
 I Dedicate this semester to you lord
 
-May i find what GOD has prepared for me....First day of shool tomorrow, super excited 
+May i find what GOD has prepared for me....First day of shool tomorrow, 
 
 I went on a walk 💚💚💚
 
