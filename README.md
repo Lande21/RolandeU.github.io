@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 ALWAYS!
 
-Day 17, i made 2+1+1+1+1+1+1+1+1+1+1 friends:Bizaza ntrb
+Day 18, i made 2+1+1+1+1+1+1+1+1+1+1 friends:Bizaza ntrb
 
 one uncomfortable thing a day!I called Mum!
 
