@@ -21,7 +21,7 @@ Happy second month Ivy, bby :)
 God loves me dearly, May He guide my sisy
 I Dedicate this semester to you lord
 
-May i find what GOD ha
+only GOD 
 I went on a walk 💚💚💚
 
 
