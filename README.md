@@ -12,7 +12,6 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: ARE ALWAYS HAPPENING!ALWAYS!
 GOD will provide always 100%. I just love GOD SO MUCH. He has a plan!
 
-
 Day 19, i made 2+1+1+1+1+1+1+1+1+1+1 friends:Bizaza ntrb
 
 one uncomfortable thing a day!I called Dad!
