@@ -10,7 +10,7 @@ I HIT 2K COMMITS YAY!!!
 
 - Occasion: 24'
 - MIRACLE: ARE ALWAYS HAPPENING!ALWAYS!
-GOD will provide always 100%. I just love GOD SO MUCH.
+GOD will provide always 100%. I just love GOD SO MUCH!!
 
 Day 19, i made 2+1+1+1+1+1+1+1+1+1+1 friends:Bizaza ntrb
 
