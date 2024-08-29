@@ -17,7 +17,6 @@ Day 19, i made 2+1+1+1+1+1+1+1+1+1+1 friends:Bizaza ntrb
 
 one uncomfortable thing a day!I called Dad!
 
-
 God loves me dearly, May He guide my sisy
 I Dedicate this semester to you lord
 
