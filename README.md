@@ -19,6 +19,7 @@ one uncomfortable thing a day!I called Dad!I will call again
 God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD
 - Went to class and made dinner, i need to narrow my research
+- wont be travelling to colombia , i guess
 only GOD 
 I went on a walk 💚💚💚
 
