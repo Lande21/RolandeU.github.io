@@ -18,7 +18,7 @@ one uncomfortable thing a day!I called Dad!I will call again
 
 God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD
-
+- Went to class and made dinner
 only GOD 
 I went on a walk 💚💚💚
 
