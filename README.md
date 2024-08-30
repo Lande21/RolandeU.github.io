@@ -12,12 +12,12 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: ARE ALWAYS HAPPENING!ALWAYS!
 GOD will provide always 100%. I just love GOD SO MUCH!!
 
-Day 20, i made 2+1+1+1+1+1+1+1+1+1+1 friends:Bizaza ntrb
+Day 20, i made 2+1+1+1+1+1+1+1+1+1+1 friends:**Bizaza ntrb**
 
 one uncomfortable thing a day!I called Dad!I will call again 
 
 God loves me dearly, May He guide all of  us!
-I Dedicate this semester to you lord
+I Dedicate this semester to you LORD
 
 only GOD 
 I went on a walk 💚💚💚
