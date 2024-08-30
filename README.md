@@ -20,7 +20,8 @@ God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD
 - Went to class and made dinner, i need to narrow my research
 - wont be travelling to colombia , i guess
-- will try to email united and delta
+- will try to email united and delta.
+- 3 yrs of work experience man!
 only GOD 
 I went on a walk 💚💚💚
 
