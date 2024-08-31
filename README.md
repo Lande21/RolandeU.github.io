@@ -18,7 +18,7 @@ one uncomfortable thing a day!I called Dad!I will call again
 
 God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD
-- wont be travelling to colombia , i guess
+- wont be travelling 
 - will try to email united and delta.
 - 3 yrs of work experience man!
 only GOD 
