@@ -1,4 +1,4 @@
-***Date : August 29th,2024 *** Fourth day of Grad school
+***Date : August 30th,2024 *** Fifth day of Grad school
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
