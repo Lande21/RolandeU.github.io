@@ -1,4 +1,4 @@
-***Date : August 31th,2024 *** Fifth day of Grad school , Congratulations for finishing 1st week!
+***Date : August 31th,2024 *** GPM Grad school , Congratulations for finishing 1st week!
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
