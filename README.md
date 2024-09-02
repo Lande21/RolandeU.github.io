@@ -9,11 +9,10 @@ Daily Notes:
 I HIT 2K COMMITS YAY!!!
 
 - Occasion: 24'
-- MIRACLE:
-GOD will provide always 100%. I just love GOD SO MUCH!!
+- MIRACLE: GOD will provide always 100%. I just love GOD SO MUCH!!
 
 Day 24 **Bizaza ntrb** one uncomfortable thing a day!I had a calll with everyone home & grandma :) 
-- My heart is happy , ill try h tomorrow only.
+- My heart is happy , ill try
 I'm on my P :"(,DAY 3 done
 God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD
