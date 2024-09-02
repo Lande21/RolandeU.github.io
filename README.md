@@ -13,7 +13,6 @@ I HIT 2K COMMITS YAY!!!
 
 Day 24 **Bizaza ntrb** one uncomfortable thing a day!I had a calll with everyone home & grandma :) 
 
-I'm on my P :"(,DAY 3 done
 God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD
 
