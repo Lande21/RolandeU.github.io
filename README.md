@@ -19,7 +19,7 @@ God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD
 
 - will try to email united and delta.
-- 3 yrs of work experience man!
+
 only GOD 
 I went on a walk 💚💚💚
 
