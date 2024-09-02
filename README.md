@@ -14,7 +14,7 @@ GOD will provide always 100%. I just love GOD SO MUCH!!
 
 Day 24 **Bizaza ntrb** one uncomfortable thing a day!I had a calll with everyone home & grandma :) 
 - My heart is happy , ill try h tomorrow only.
-I'm on my P :"(,DAY 2 done
+I'm on my P :"(,DAY 3 done
 God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD
 
