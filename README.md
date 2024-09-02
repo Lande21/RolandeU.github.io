@@ -1,4 +1,4 @@
-***Date : September 1st,2024 *** GPM Grad school , Congratulations for finishing 1st week!
+***Date : September 1st,2024 *** GPM Grad school , Congratulations for finishing 1st week! its the first of the month!
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
