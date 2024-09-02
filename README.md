@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: ARE ALWAYS HAPPENING!ALWAYS!
 GOD will provide always 100%. I just love GOD SO MUCH!!
 
-Day 23 **Bizaza ntrb** one uncomfortable thing a day!I had a calll with everyone home :) 
+Day 24 **Bizaza ntrb** one uncomfortable thing a day!I had a calll with everyone home & grandma :) 
 - My heart is happy , ill try h tomorrow only.
 I'm on my P :"(,DAY 2 done
 God loves me dearly, May He guide all of  us!
