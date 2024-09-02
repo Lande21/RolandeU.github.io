@@ -9,7 +9,7 @@ Daily Notes:
 I HIT 2K COMMITS YAY!!!
 
 - Occasion: 24'
-- MIRACLE: ARE ALWAYS HAPPENING!ALWAYS!
+- MIRACLE: ARE ALWAYS 
 GOD will provide always 100%. I just love GOD SO MUCH!!
 
 Day 24 **Bizaza ntrb** one uncomfortable thing a day!I had a calll with everyone home & grandma :) 
