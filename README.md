@@ -18,6 +18,7 @@ I Dedicate this semester to you LORD.
 
 - will try to email united and delta.
 - i went to aldi with my scooter, managed to get to under $30
+- will uninstall 2morro
 
 only GOD 
 I went on a walk 💚💚💚
