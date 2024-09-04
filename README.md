@@ -9,7 +9,7 @@ Daily Notes:
 I HIT 2K COMMITS YAY!!!
 
 - Occasion: 24'
-- MIRACLE: GOD will provide always 100%. I just love GOD SO MUCH!!
+- MIRACLE: GOD will provide always 100%. I just love GOD SO MUCH!!!!
 
 Day 26 **Bizaza ntrb** one uncomfortable thing a day!I had a calll with everyone home & Ivy and Good news Congrats sisy:) 
 
@@ -17,7 +17,7 @@ God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD.
 
 - will try to email united and delta.
-- i went to aldi with my scooter, managed to get to under $30, so proud of you love
+- i went to aldi with my scooter, managed to get to under $30, so proud of you love :<3
 - Got my new lappy, May God bless my work and strengthen this journey that i just started
 
 only GOD 
