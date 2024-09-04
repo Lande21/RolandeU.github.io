@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%. I just love GOD SO MUCH!!
 
-Day 26 **Bizaza ntrb** one uncomfortable thing a day!I had a calll with everyone home & Ivy and Good news:) 
+Day 26 **Bizaza ntrb** one uncomfortable thing a day!I had a calll with everyone home & Ivy and Good news Congrats sisy:) 
 
 God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD.
