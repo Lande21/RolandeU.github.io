@@ -11,14 +11,14 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%. I just love GOD SO MUCH!!
 
-Day 25 **Bizaza ntrb** one uncomfortable thing a day!I had a calll with everyone home & grandma :) 
+Day 26 **Bizaza ntrb** one uncomfortable thing a day!I had a calll with everyone home & grandma :) 
 
 God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD.
 
 - will try to email united and delta.
 - i went to aldi with my scooter, managed to get to under $30
-- will uninstall 2morro
+- I unistalled yay
 
 only GOD 
 I went on a walk 💚💚💚
