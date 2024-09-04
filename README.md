@@ -18,7 +18,6 @@ I Dedicate this semester to you LORD.
 
 - will try to email united and delta.
 - i went to aldi with my scooter, managed to get to under $30, so proud of you love
-- I unistalled yay
 - Got my new lappy, May God bless my work and strengthen this journey that i just started
 
 only GOD 
