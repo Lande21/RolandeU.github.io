@@ -1,4 +1,4 @@
-***Date : September 5th,2024 *** GPM Grad school , Congratulations for finishing 1st week! its the second of the month!Finished the whole day without insta, twiter
+***Date : September 5th,2024 *** GPM Grad school , Congratulations for finishing 1st week! its the second of the month!Finished the whole day without insta, twiter,tt
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
