@@ -19,7 +19,7 @@ I Dedicate this semester to you LORD.
 - will try to email united and delta.
 - i went to aldi with my scooter, managed to get to under $30, so proud of you love : had a call with savana as well <3
 - Got my new lappy, May God bless my work and strengthen this journey that i just started
-- Webt to aldi and spent $26
+- Webt to aldi 
 - Dad called me, new opportunities knocking...
 only GOD , I had my TDAP Vaccin, went to work out with d
 I went on a walk 💚💚💚
