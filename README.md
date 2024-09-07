@@ -17,7 +17,6 @@ God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD.
 
 - will try to email united and delta.
-- i went to aldi with my scooter, manage
 - Got my new lappy, May God bless my work and strengthen this journey that i just starte
 - Dad called me, new opportunities knocking...
 only GOD , I had my TDAP Vaccin, went to work out with d
