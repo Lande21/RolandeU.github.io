@@ -17,7 +17,7 @@ God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD.
 
 - will try to email united and delta.
-- Got my new lappy, May God bless my work and strengthen this journey that i just starte
+- Got my new lappy, May G
 - Dad called me, new opportunities knocking...
 only GOD , I had my TDAP Vaccin, went to work out with d
 I went on a walk 💚💚💚
