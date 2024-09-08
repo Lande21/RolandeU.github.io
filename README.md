@@ -21,7 +21,7 @@ I Dedicate this semester to you LORD.
 - Dad called me, new opportunities knocking...
 only GOD , I had my TDAP Vaccin, went to work out with d
 I went on a walk 💚💚💚
-went to 
+   
 
 
 
