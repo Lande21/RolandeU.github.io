@@ -19,7 +19,6 @@ I Dedicate this semester to you LORD.
 - will try to email united and delta.
 - Got my new lappy, May GOD Bless my work!
 - Dad called me, new opportunities knocking...
-only GOD , I had my TDAP Vaccin, went to work out with d
 I went on a walk 💚💚💚
    
 
