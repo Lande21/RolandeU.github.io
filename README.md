@@ -20,6 +20,7 @@ I Dedicate this semester to you LORD.
 - Got my new lappy, May GOD Bless my work!
 - Dad called me, new opportunities knocking...
 I went on a walk 💚💚💚
+-This month i will know if i am attending the SDSC in NYC!
    
 
 
