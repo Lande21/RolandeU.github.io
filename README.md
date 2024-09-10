@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%. I just love GOD SO MUCH!!!!
 
-Day 30**Bizaza ntrb** 
+Day 31 **Bizaza ntrb** 
 
 God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD.
