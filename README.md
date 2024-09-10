@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 Day 31 **Good things ahead!** 
 
 God loves me dearly, May He guide all of  us!
-I Dedicate this semester to you LORD.
+I Dedicate this semester to you LORD :)
 
 - will try to email united and delta.
 - Got my new lappy, May GOD Bless my work!new opportunities knocking...
