@@ -17,8 +17,7 @@ God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD.
 
 - will try to email united and delta.
-- Got my new lappy, May GOD Bless my work!
-- Dad called me, new opportunities knocking...
+- Got my new lappy, May GOD Bless my work!new opportunities knocking...
 I went on a walk 💚💚💚
 -This month i will know soon if i am attending the SDSC in NYC!
    
