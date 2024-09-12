@@ -20,7 +20,7 @@ I Dedicate this semester to you LORD :)
 - Got my new lappy, May GOD Bless my work!new opportunities knocking...
 I went on a walk 💚💚💚
 -This month i will know soon if i am attending the SDSC in NYC! cadcsam in edina instead!
--
+-Went to walmart
    
 
 
