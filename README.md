@@ -1,4 +1,4 @@
-***Date : September 10th,2024 *** GPM Grad school ,Tuesday, i went to church!!! Congratulations for finishing 2nd week! its the second week of the month!
+***Date : September 11th,2024 *** GPM Grad school ,Tuesday, i went to church!!! Congratulations for finishing 2nd week! its the second week of the month!
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
