@@ -15,6 +15,7 @@ Day 33 **Good things ahead!** talked to Ivy and Mom
 
 God loves me dearly, May He guide all of  us!
 I Dedicate this semester to you LORD :)
+did quiz and got a B!
 
 - will try to email united and delta.
 - Got my new lappy, May GOD Bless my work!new opportunities knocking...
