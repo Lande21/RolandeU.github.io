@@ -22,7 +22,7 @@ did quiz and got a B!
 I went on a walk 💚💚💚
 -This month i will know soon if i am attending the SDSC in NYC! cadcsam in edina instead!
 -Went to walmart
--Will let you know how it gies for the fair 2morrow!
+-Went
 
 
 
