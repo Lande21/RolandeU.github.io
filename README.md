@@ -20,5 +20,4 @@ did quiz and got a B!
 - will try to email united and delta.
 - Got my new lappy, May GOD Bless my work!new opportunities knocking...
 I went on a walk 💚💚💚
--This month i will know soon if
   
