@@ -21,10 +21,4 @@ did quiz and got a B!
 - Got my new lappy, May GOD Bless my work!new opportunities knocking...
 I went on a walk 💚💚💚
 -This month i will know soon if i am attending the SDSC in NYC! cadcsam in edina instead!
--Went well actually, not bad
-
-
-
-
-
-
+  
