@@ -14,6 +14,7 @@ I HIT 2K COMMITS YAY!!!
 Day 38 **Good things ahead!** 
 DAY: Monday
 Datacamp: Day 1
+1Hr self work: 💚
 God loves me dearly, May He guide all of  us!
 
 I went on a walk 💚💚💚💚
