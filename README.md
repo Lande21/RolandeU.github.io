@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%. I just love GOD SO MUCH!!!!
 
-Day 37 **Good things ahead!** talked to Ivy and Mom
+Day 38 **Good things ahead!** 
 
 God loves me dearly, May He guide all of  us!
 
