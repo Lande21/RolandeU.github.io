@@ -14,9 +14,6 @@ I HIT 2K COMMITS YAY!!!
 Day 37 **Good things ahead!** talked to Ivy and Mom
 
 God loves me dearly, May He guide all of  us!
-I Dedicate this semester to you LORD :)
-did quiz and got a B!
 
-- Got my new lappy, M
 I went on a walk 💚💚💚💚
   
