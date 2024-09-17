@@ -18,5 +18,5 @@ I Dedicate this semester to you LORD :)
 did quiz and got a B!
 
 - Got my new lappy, May GOD Bless my work!new opportunities knocking...
-I went on a walk 💚💚💚
+I went on a walk 💚💚💚💚
   
