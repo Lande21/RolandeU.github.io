@@ -1,4 +1,4 @@
-***Date : September 17th,2024 *** Grad school , Sunday, i went to church!!! Congratulations for finishing 2nd week! its the second week of the month!
+***Date : September 17th,2024 *** Grad school , Sunday, i went to church!!! Congratulations for finishing 3rd week! its the second week of the month!
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
