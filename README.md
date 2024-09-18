@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%. I just love GOD SO MUCH!!!!
 
 Day 38 **Good things ahead!** 
-DAY: Monday
+DAY: Tuesday
 Datacamp: Day 1
 1Hr self work: 💚
 God loves me dearly, May He guide all of  us!
