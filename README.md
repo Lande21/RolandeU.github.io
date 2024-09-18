@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 38 **Good things ahead!** 
 DAY: Tuesday
-Datacamp: Day 2, no free version
+Started AWS
 1Hr self work: 💚
 God loves me dearly, May He guide all of  us!
 
