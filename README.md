@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%. I just love GOD SO MUCH!!!!
 
-Day 38 **Good things ahead!** 
+Day 39 **Good things ahead!** 
 DAY: Tuesday
 Started AWS
 1Hr self work: 💚
