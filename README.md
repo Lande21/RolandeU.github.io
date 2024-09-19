@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 40 **Good things ahead!** 
 DAY: Wednesday
-Started AWS
+Started AWS II
 1Hr self work: 💚💚
 God loves me dearly, May He guide all of  us!
 
