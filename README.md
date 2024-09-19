@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%. I just love GOD SO MUCH!!!!
 
 Day 39 **Good things ahead!** 
-DAY: Tuesday
+DAY: Wednesday
 Started AWS
 1Hr self work: 💚
 God loves me dearly, May He guide all of  us!
