@@ -1,4 +1,4 @@
-***Date : September 17th,2024 *** Grad school , Sunday, i went to church!!! Congratulations for finishing 3rd week! Had a lot of mini cake 
+***Date : September 18th,2024 *** Grad school , day, i went to church!!! Congratulations for finishing 3rd week! Had a lot of mini cake 
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
