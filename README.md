@@ -1,4 +1,4 @@
-***Date : September 19th,2024 *** Grad school , Thursday!!! Congratulations for finishing 3rd week! Had a lot of mini cake 
+***Date : September 19th,2024 *** Grad school , Thursday!!! Congratulations for finishing 3rd week! Had a lot of 
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
