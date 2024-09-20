@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 Day 41 **Good things ahead!** 
 DAY: Thursday
 Started AWS II
-1Hr self work: 💚💚
+1Hr self work: 💚💚💚
 God loves me dearly, May He guide all of  us!
 
 I went on a walk 💚💚💚💚💚
