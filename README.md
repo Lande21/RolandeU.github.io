@@ -9,7 +9,7 @@ Daily Notes:
 I HIT 2K COMMITS YAY!!!
 
 - Occasion: 24'
-- MIRACLE: GOD will provide always 100%. I just love GOD SO MUCH!!!!
+- MIRACLE: GOD will provide always 100%. I just l
 
 Day 42 **Good things ahead!** 
 DAY: Saturday
