@@ -1,4 +1,4 @@
-***Date : September 22th,2024 *** Grad school , Meal!!! Congratulations 
+***Date : September 22th,2024 *** Grad school !!! Congratulations 
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
