@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 Day 44 **Good things ahead!** 
 DAY: Monday, went to church :) asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
 Started AWS II
-1Hr self work: 💚💚💚
+1Hr work: 💚💚💚
 God loves me dearly, May He guide all of  us!
 
 I went on a walk 💚💚💚💚💚
