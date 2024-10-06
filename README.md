@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 55 **Good things ahead!** 
 DAY: Saturday, went to church :) asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
-happy 3rd month Ivy!
+happy 3rd month Ivy!I will succeed
 1Hr work: 💚💚💚
 God loves me dearly, May He guide all of  us!
 
