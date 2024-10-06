@@ -1,4 +1,4 @@
-***Date : October 05th,2024 *** Grad school Yayy!! HOCO!
+***Date : October 05th,2024 *** Grad school Yayy!! HOCO! Happy Sunday!
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
