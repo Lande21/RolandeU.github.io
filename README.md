@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 55 **Good things ahead!** 
+Day 56 **Good things ahead!** 
 DAY: Saturday, went to church :) asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
 happy 3rd month Ivy!I will succeed
 1Hr work: 💚💚💚
