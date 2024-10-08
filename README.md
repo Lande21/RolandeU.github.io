@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 56 **Good things ahead!** 
-DAY: Saturday, went to church :) asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
+DAY: Satuday, it way Homecoming, went to church :) asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
 happy 3rd month Ivy!I will succeed
 1Hr work: 💚💚💚
 God loves me dearly, May He guide all of  us!
