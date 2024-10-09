@@ -11,8 +11,8 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 56 **Good things ahead!** 
-DAY: Satuday, it was Homecoming, I helped out 10am-1pm and went to the game. After had some sweat treats and we lost 36-40. i went to church :) after did group work from 11a-12am! We survived the presentation today.
+Day 57 **Good things ahead!** 
+DAY: Satuday, it wasI helped out 10am-1pm and went to the game. After had some sweat treats and we lost 36-40. i went to church :) after did group work from 11a-12am! We survived the presentation today.
 
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
