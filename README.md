@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 57 **Good things ahead!** 
-DAY: Tuesday, After had some sweat treats and we l. i went to church :) after did group work from 11a-12am! We survived the presentation today.
+DAY: Tuesday, reats and we l. i went to church :) after did group work from 11a-12am! We survived the presentation today.
 
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
