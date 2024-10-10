@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 58 **Good things ahead!** 
-DAY: Wednesday, and Napped. Had class, went to a meeting with Rajeev and grad students, Went to CSU for a photo shot and EASA Event.
+DAY: Wednesday Had class, went to a meeting with Rajeev and grad students, Went to CSU for a photo shot and EASA Event.
 I got the cold but i am healing! Had a productive day!
 
 
