@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 57 **Good things ahead!** 
+Day 58 **Good things ahead!** 
 DAY: Tuesday, Had work, went to career affair and class and Napped. I got the cold but i am healing! Had a productive day!
 
 
