@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 59 **Good things ahead!** 
-DAY: Thursday, i woke up and went to ALdi with 8:50AM bus and by 9:40 i was back !!Nagiye kwiga, mvugana na maman  na roro na IVYna reine!, i Had class, went to a meeting with Rajeev and grad students, Went to CSU for a photo shot and EASA Event.
+DAY: Thursday, i woke up and went to ALdi with 8:50AM bus and by 9:40 i was back !!Nagiye kwiga, mvugana na maman  na, i Had class, went to a meeting with Rajeev and grad students, Went to CSU for a photo shot and EASA Event.
 I got the cold but i am healing! Had a productive day!
 I feel from my scooter!!
 
