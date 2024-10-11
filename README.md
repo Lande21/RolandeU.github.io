@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 59 **Good things ahead!** 
-DAY: Thursday, i woke up and went to ALdi with 8:50AM bus and by 9:40 i was bai Had class, went to a meeting with Rajeev and grad students, Went to CSU for a photo shot a
+DAY: Thursday, i woke up and went to ALdi with 8:50AM bus and by 9:40 i was bai Had class, went to a meeting with Rajeev and grad students
 I got the cold but i am healing! Had a productive day!
 I feel from my scooter!!
 
