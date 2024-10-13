@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 61 **Good things ahead!** 
 DAY: Saturday, i woke up and went to ALdi 
-I got the cold but i am healing! Had a productive day! Went to Walmart and Aldi, 
+I got the cold but i am healing! Had a productive day! 
 I feel from my scooter!!
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
