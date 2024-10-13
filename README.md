@@ -1,4 +1,4 @@
-***Date : October 11th,2024 *** Grad school.... Got midterms on monday..Happy Friday!
+***Date : October 12th,2024 *** Grad school.... Got midterms on monday..Happy Friday!
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
