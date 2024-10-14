@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 61 **Good things ahead!** 
+Day 62 **Good things ahead!** 
 DAY: Saturday, i woke up and went to ALdi 
 I got the cold but i am healing! Had a productive day! 
 I feel from my scooter!!
