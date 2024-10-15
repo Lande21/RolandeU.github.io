@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 62 **Good things ahead!** 
+Day 63 **Good things ahead!** 
 DAY: Sunday, i woke up and went to Church, cooked and went to the library
 I got the cold but i am healing! Had a productive day! 
 I will  ace my mideterm tomorrow!
