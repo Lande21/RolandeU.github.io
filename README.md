@@ -1,4 +1,4 @@
-***Date : October 14th,2024 *** Grad school.... Got midterms on Monday.May GOD GIVE ME AN A+.Happy Sunday love!
+***Date : October 14th,2024 *** Grad school.... Got .May GOD GIVE ME AN A+.Happy Sunday love!
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
