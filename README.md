@@ -1,4 +1,4 @@
-***Date : October 15th,2024 *** Grad school.... Got an Exam . I got a B and i am gratefull.Happy Monday Love, May you ace the quiz tomorrow and get an A!
+***Date : October 15th,2024 *** Grad school..... I got a B and i am gratefull.Happy Monday Love, May you ace the quiz tomorrow and get an A!
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
