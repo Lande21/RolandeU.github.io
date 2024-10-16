@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 64 **Good things ahead!** 
 DAY: Tuesday, i woke up and went to Church, cooked and went to the library
-I got the cold but i am getting better! Had a productive day! 
+I got better! Had a productive day! 
 I Aced my midterms!!
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
