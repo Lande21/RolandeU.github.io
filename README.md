@@ -12,13 +12,13 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 65 **Good things ahead!** 
-DAY: Tuesday, i woke up and went to Church, cooked and went to the library
+DAY: Wednesday, i woke up and went to class, cooked and went to the library
 I got better! Had a productive day! 
 I Aced my midterms!! I will submit and get approved!
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
 happy 3rd month Ivy!I will succeed
-2Hr work: Daily💚💚💚
+2hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
 
 I went on a walk 💚💚💚💚💚
