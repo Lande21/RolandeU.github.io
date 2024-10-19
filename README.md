@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 69  **Good things ahead!** 
-DAY: Wednesday, i woke up and went to class, cooked and went to the library
+DAY: Friday, i woke up and went to class, cooked and went to the library
 I got better! Had a productive day! 
 I Aced my midterms!! I will submit and get approved!
 
