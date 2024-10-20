@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 70  **Good things ahead!** 
 DAY: Friday, i woke up and went to class, cooked and went to the library
-I got better! Had a productive day! 
+I submitted for CADSCOM2024!! Had a productive day! 
 I Aced my midterms!! I will submit and get approved!
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
