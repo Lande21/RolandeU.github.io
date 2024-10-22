@@ -1,4 +1,4 @@
-***Date : October 21th,2024 *** Grad school.....Happy Saturday Love, May you ace the quiz tomorrow and get an A!
+***Date : October 21th,2024 *** Grad school.....Happy Saturday.
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
