@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 70  **Good things ahead!** 
+Day 71  **Good things ahead!** 
 DAY: Friday, i woke up and went to class, cooked and went to the library
 I submitted for CADSCOM2024!! Had a productive day! 
 I Aced my midterms!! I will submit and get approved!
