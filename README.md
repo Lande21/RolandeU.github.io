@@ -14,7 +14,6 @@ I HIT 2K COMMITS YAY!!!
 Day 71  **Good things ahead!** 
 DAY: Friday, i woke up and went to class, cooked and went to the library
 Had a productive day! 
-I Aced my midterms!! I will submit and get approved!
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
 happy 3rd month Ivy!I will succeed this year in Jesus name!
