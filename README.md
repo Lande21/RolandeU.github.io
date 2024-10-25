@@ -4,14 +4,14 @@
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
 
 Daily Notes:
-💚🙏🏾 Imana ninziza Cyane! 
+💚 Imana ninziza Cyane! 
 
 I HIT 2K COMMITS YAY!!!
 
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 74  **Good things ahead!** 
+Day 75  **Good things ahead!** 
 DAY: Wednesday, i woke up and went to class, cooked and went to the library
 Had a productive day! 
 
