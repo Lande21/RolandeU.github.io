@@ -1,4 +1,4 @@
-***Date : October 25th,2024 *** Grad school.....Happy Thursday.
+***Date : October 25th,2024 *** Grad school.....Happy Friday.
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
