@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 76 **Good things ahead!** 
-- DAY: Thursday, i woke up and went to class, called mom, ivy and sisy.
+- DAY: Friday, i woke up and went to class, called mom, ivy and sisy.
 Had a productive day! 
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
