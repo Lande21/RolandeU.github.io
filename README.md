@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 75  **Good things ahead!** 
+Day 76 **Good things ahead!** 
 - DAY: Thursday, i woke up and went to class, called mom, ivy and sisy.
 Had a productive day! 
 
