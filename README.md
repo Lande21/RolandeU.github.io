@@ -15,7 +15,7 @@ Day 77 **Good things ahead!**
 - DAY: Sunday, i woke up and went to church, talked to Mom, Dad and sis, went to the library from 1-8p7 hours doing 540 :(...
 Had a productive day! 
 
-asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me. Great example today
+asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me. Great example today in church about the blind person and cave
 happy 4th month Ivy!I will succeed this year in Jesus name!
 2hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
