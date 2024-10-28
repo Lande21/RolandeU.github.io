@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 77 **Good things ahead!** 
-- DAY: Sunday, i woke up and went to church, talked to Mom, Dad and sis, went...
+- DAY: Sunday, i woke up and went to church, talked to Mom, Dad and sis, went to the library from 1-8p7 hours doing 540 :(...
 Had a productive day! 
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me.
