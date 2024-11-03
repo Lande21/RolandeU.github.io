@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 81 **Good things ahead!** 
+Day 82 **Good things ahead!** 
 - DAY: Thursday, i woke up and went to class, church pantry and had a call with Kend, attended a workshop, asked a Q my advisor and went to the library...Ate, and went to workout
 Had a productive day! :)
 
