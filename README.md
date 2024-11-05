@@ -19,4 +19,4 @@ asking for the grace to see all the 90% good that i am doing and not care for 10
 2hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
 
-I went on a walk 💚💚💚💚💚
+I went on a walk 💚💚💚💚💚💚
