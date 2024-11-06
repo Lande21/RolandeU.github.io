@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 85 **Good things ahead!** 
-- DAY: Tuesday, i woke up and went to food pantry, class, and work..
+- DAY: Tuesday, i woke up and went to work, lunch , class, library and made dinner..
 Had a productive day! :)
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me. Happy 4th month Ivy!I will succeed this year in Jesus name!
