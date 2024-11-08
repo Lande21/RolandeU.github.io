@@ -1,6 +1,6 @@
 ***Date : November 6th,2024 *** Grad school.....2days to go!
 # RolandeU.github.iobsndbebdjd d 
-
+bsbskdndbdnd
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
 
 Daily Notes:
