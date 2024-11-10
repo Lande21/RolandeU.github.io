@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 88 **Good things ahead!** 
 - DAY: Wednesday, i woke up and went to class, skiped lunch , library to start hw and Einstein and work
-Had a productive day! I'm exhausted but also excited, i just yotta lock in until December 8th.
+Had a productive day! I'm exhausted but also excited, i just 
 
 can't wait for C24th, IT WAS 10/10 :)
 
