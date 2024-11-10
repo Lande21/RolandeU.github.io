@@ -15,7 +15,7 @@ Day 88 **Good things ahead!**
 - DAY: Wednesday, i woke up and went to class, skiped lunch , library to start hw and Einstein and work
 Had a productive day! I'm exhausted but also excited, i just yotta lock in until December 8th.
 
-can't wait for C24th
+can't wait for C24th, IT WAS 10/10 :)
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me. Happy 4th month Ivy!I will succeed this year in Jesus name!
 2hr work: Daily💚💚💚
