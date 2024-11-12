@@ -1,4 +1,4 @@
-***Date : November 7th,2024 *** Grad school.....WENT AND PRESENTED AT CADSCOM24!
+***Date : November 8th,2024 *** Grad school.....WENT AND PRESENTED AT CADSCOM24!
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
