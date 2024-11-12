@@ -15,7 +15,7 @@ Day 93 **Good things ahead!**
 - DAY: Tuesday, i woke up and went to class, skiped lunch , library to start hw and Einstein and work
 Had a productive day! I'm exhausted but also excited, i just 
 
-can't wait for C24th, IT WAS 10/10 :), Locked In!
+im thankful for C24th, IT WAS 10/10 :), Locked In!
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me. Happy 4th month Ivy!I will succeed this year in Jesus name!
 2hr work: Daily💚💚💚
