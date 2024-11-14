@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 96 **Good things ahead!** 
-- DAY: Tuesday, i woke up and went to class, skiped lunch , library to start hw and Einstein and work
+- DAY: Thursday, i woke up and went to class, skiped lunch , library to start hw and Einstein and work
 Had a productive day! I'm exhausted but also excited, i just 
 
 im thankful for C24th, IT WAS 10/10 :), Locked In!
