@@ -13,12 +13,10 @@ I HIT 2K COMMITS YAY!!!
 
 Day 96 **Good things ahead!** 
 - DAY: Thursday, i woke up and went to class, skiped lunch , library to start hw and Einstein and work
-Had a productive day! I'm exhausted but also excited, i just 
-
-im thankful for C24th, IT WAS 10/10 :), Locked In!
+Had a productive day! 
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me. Happy 4th month Ivy!I will succeed this year in Jesus name!
-2hr work: Daily💚💚💚
+3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
 Enrolled into Google LLM!
 
