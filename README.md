@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 93 **Good things ahead!** 
+Day 96 **Good things ahead!** 
 - DAY: Tuesday, i woke up and went to class, skiped lunch , library to start hw and Einstein and work
 Had a productive day! I'm exhausted but also excited, i just 
 
