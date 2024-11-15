@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 97 **Good things ahead!** 
-- DAY: Thursday, i woke up and went to class, skiped lunch , library to start hw and went to work
+- DAY: Thursday, i woke up and had a productive day!!!! we went to ISG and i won $100 Scheels giftcard!!
 Had a productive day! 
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me. Happy 4th month Ivy!I will succeed this year in Jesus name!
