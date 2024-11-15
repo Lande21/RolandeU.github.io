@@ -1,4 +1,4 @@
-***Date : November 12th,2024 *** Grad school.....I'm so proud of you 
+***Date : November 13th,2024 *** Grad school.....I'm so proud of you 
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
