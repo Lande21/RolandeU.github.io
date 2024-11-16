@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 97 **Good things ahead!** 
+Day 98 **Good things ahead!** 
 - DAY: Thursday, i woke up and had a productive day!!!! we went to ISG and i won $100 Scheels giftcard!!
 Had a productive day! 
 
