@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 99 **Good things ahead!** 
+Day 100 **Good things ahead!** 
 - DAY: Saturday, i woke up and did laundry, talked to home and say learnmoe the comedian
 Had a productive day! 
 
