@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 103 **Good things ahead!** 
 - DAY: Thursday , i woke up and talked to fam, talked to home we are presenting next week
-Had a productive day!  went to work and started hw
+Had a productive day!  went to work and started hw,2/10
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me. Happy 4th month Ivy!I will succeed this year in Jesus name!
 3hr work: Daily💚💚💚
