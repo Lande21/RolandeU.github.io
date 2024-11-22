@@ -1,9 +1,9 @@
-***Date : November 20th,2024 *** Grad school.....I'm so proud of you !Always!
+***Date : November 21th,2024 *** Grad school.....I'm so proud of you !Always!
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
 
-Daily Notes:
+Daily Notes
 💚 Imana ninziza Cyane! 
 
 I HIT 2K COMMITS YAY!!!
