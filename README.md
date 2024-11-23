@@ -1,4 +1,4 @@
-***Date : November 22th,2024 *** Grad school.....I'm so proud of you !Always!
+***Date : November 22th,2024 *** Grad school.....I'm so proud of you ! Always! Two days for my sis bday!
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
