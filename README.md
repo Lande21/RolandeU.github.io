@@ -1,4 +1,4 @@
-***Date : November 25th,2024 *** Grad school.....I'm so proud of you ! Always! Todays was Rena's day
+***Date : November 26th,2024 *** Grad school.....I'm so proud of you ! Always! Todays was Rena's day
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
