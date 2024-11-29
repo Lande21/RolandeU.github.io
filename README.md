@@ -1,4 +1,4 @@
-***Date : November 28th,2024 *** Grad school.....I'm so proud of you ! Always! Todays is about to be Rosy's birthday :) today was thank giving 
+***Date : November 28th,2024 *** Grad school.....I'm so proud of you ! Always! Todays is about to be Rosy's birthday :) today was thanksgiving 
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
