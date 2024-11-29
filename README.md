@@ -11,7 +11,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 108. **Good things ahead!** 
+Day 109. **Good things ahead!** 
 - DAY: Wednesday , i woke up, went to church and talked to fam, talked to home we are presenting tomorrow
 Have productive day!  how'd go? AMAZING HUGE A+
 
