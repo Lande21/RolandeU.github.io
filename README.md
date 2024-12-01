@@ -1,4 +1,4 @@
-***Date : November 30th,2024 *** Grad school.....I'm so proud of you ! 
+***Date : November 30th,2024 *** Grad school.....I'm so proud of you ! Today we had a fun day with Diama to a lot of pasteries
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
