@@ -5,14 +5,15 @@ A portfolio GitHub webpage with a few bits of my work throughout my career. And 
 
 Daily Notes
 💚 Imana ninziza Cyane! 
+💚
 
 I HIT 2K COMMITS YAY!!!
 
 - Occasion: 24'
 - MIRACLE: GOD will provide always 100%.
 
-Day 110. **Good things ahead!** 
-- DAY: Sunday, i woke up, went to church and talked to fam, talked to home we are presenting tomorrow
+Day 115. **Good things ahead!** 
+- DAY: Monday, i woke up, went to church and talked to fam, talked to home we are presenting tomorrow
 Have productive day!  how'd go?
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me. Happy 4th month Ivy!I will succeed this year in Jesus name!
