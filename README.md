@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 116. **Good things ahead!** 
-- DAY: Monday, i woke up, went to church and talked to fam, talked to home we are presenting tomorrow
+- DAY: Tuesday, i woke up, went to church and talked to fam, talked to home we are presenting tomorrow
 Have productive day!  how'd go?
 
 asking for the grace to see all the 90% good that i am doing and not care for 10% that evil pushes on me. Happy 4th month Ivy!I will succeed this year in Jesus name!
