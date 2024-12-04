@@ -1,4 +1,4 @@
-***Date : December 2nd,2024 *** Grad school.....I'm so proud of you ! Wake upppppp, it's the second of the month
+***Date : December 3rd,2024 *** Grad school.....I'm so proud of you ! Wake upppppp, it's the second of the month
 # RolandeU.github.io
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
