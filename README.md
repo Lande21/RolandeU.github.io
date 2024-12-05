@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 118. **Good things ahead!** 
-- DAY: Had a good tue, i woke up, went to class, work and talked to fam, I studied at the library
+- DAY: Had a good Wednesday, i woke up, went to class, work and talked to fam, I studied at the library
 We had a productive day at the library! 
 
 
