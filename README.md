@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 119. **Good things ahead!** 
 - DAY: Had a good Thursday, i woke up, went to class, and did the quiz not so well, I studied at the library
-We had a productive day at the library! 
+
 
 
 3hr work: Daily💚💚💚
