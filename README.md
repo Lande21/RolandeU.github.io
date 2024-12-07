@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 120. **Good things ahead!** 
-- DAY: Had a good Friday, i woke up, went to class, and did the quiz not so well, sorry my love you did your best!
+- DAY: Had a good Friday, i woke up, called my sister, Went to work, and did the quiz not so well, sorry my love you did your best!
 
 
 
