@@ -1,5 +1,5 @@
-***Date : December 6th,2024 *** Grad school.....I'm so proud of you ! Wake upppppp, it's the sixth of the month
-# RolandeU.github.io
+***Date : December 6th,2024 *** Grad school.....I'm so proud of you ! Wake upppppp, it's the sixth of the month! Congratulations sisy!
+# RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
 
