@@ -12,7 +12,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY yayyyyy
 - MIRACLE: GOD will provide always 100%.
 
-Day 119. **Good things ahead!** 
+Day 120. **Good things ahead!** 
 - DAY: Had a good Thursday, i woke up, went to class, and did the quiz not so well, sorry my love you did your best!
 
 
