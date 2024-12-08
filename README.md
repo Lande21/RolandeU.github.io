@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 121. **Good things ahead!** 
-- DAY: Had a good Friday, i woke up, called my sister, Went to work, and had a potluck, went to the bowling and it went well and library for an hr
+- DAY: Had a good Saturday, i woke up, called my sister, whole fam library for an hr
 
 
 
