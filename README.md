@@ -1,4 +1,4 @@
-***Date : December 7th,2024 *** Grad school.....I'm so proud of you ! Wake upppppp, it's the seventh of the month! Congratulations sisy! Its all about the little choices we make everyday. 10days Ntt
+***Date : December 7th,2024 *** Grad school.....I'm so proud of you ! Wake upppppp, it's the seventh of the month! Congratulations sisy! Its all about the little choices we make everyday. 5days Ntt
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
