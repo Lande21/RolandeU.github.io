@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 122. **Good things ahead!** 
-- DAY: Had a good Sunday, i woke up, went to church, whole fam studied and became addicted to pomodoro technique
+- DAY: Had a good Sunday, i woke up, made break fast, went to church, talked to whole fam, studied and became addicted to pomodoro technique
 
 
 
