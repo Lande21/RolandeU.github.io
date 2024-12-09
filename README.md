@@ -1,4 +1,5 @@
-***Date : December 8th,2024 *** Grad school.....I'm so proud of you ! Wake upppppp, RIP Makky's mom Its all about the little choices we make everyday. 10days Ntt I
+***Date : December 8th,2024 *** Grad school.....I'm so proud of you ! Wake upppppp, RIP Makky's mom Its all about the little choices we make everyday. I studied diligently
+10days Ntt II
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
