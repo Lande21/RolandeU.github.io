@@ -1,4 +1,4 @@
-***Date : December 8th,2024 *** Grad school.....I'm so proud of you ! Wake upppppp, RIP Makky's mom Its all about the little choices we make everyday. I studied diligently, i will get the best grade
+***Date : December 8th,2024 *** Grad school.....I'm so proud of you ! Wake upppppp, RIP Makky's mom Its all about the little choices we make everyday. I studied diligently, i will get the best grade! How did we do?
 10days Ntt II
 # RolandeU.github.io!
 
