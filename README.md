@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 123. **Good things ahead!** 
-- DAY: Had a good Monday, i woke up, made break fast, went to shower, talked to whole fam, studied and became addicted to pomodoro technique, made rice and beans
+- DAY: Had a good Monday, i woke up, made break fast, went to shower, Did exam, went to church, talked to fam, studied and became addicted to pomodoro technique, ate pizza for dinner
 
 
 
