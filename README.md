@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY yayyyyy
 - MIRACLE: GOD will provide always 100%.
 
-Day 122. **Good things ahead!** 
+Day 123. **Good things ahead!** 
 - DAY: Had a good Sunday, i woke up, made break fast, went to church, talked to whole fam, studied and became addicted to pomodoro technique, made rice and beans
 
 
