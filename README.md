@@ -1,4 +1,4 @@
-***Date : December 11th,2024 *** Grad school.....I'm so proud of you ! Wake upppppp,Its all about the little choices we make everyday. we are almost there. I studied diligently, i will get the best grade! How did we do? It was easy but with a twist it got the best grade :)
+***Date : December 12th,2024 *** Grad school.....I'm so proud of you ! Wake upppppp,Its all about the little choices we make everyday. we are almost there. I studied diligently, i will get the best grade! How did we do? It was easy but with a twist it got the best grade :)
 10 days Ntt IIII
 # RolandeU.github.io!
 
