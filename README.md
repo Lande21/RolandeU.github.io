@@ -1,5 +1,5 @@
-***Date : December 12th,2024 *** Grad school.....I'm so proud of you ! Wake upppppp,Its all about the little choices we make everyday. we are almost there. I studied diligently, i will get the best grade! How did we do? It was easy but with a twist it got the best grade :)
-10 days Ntt IIIII
+***Date : December 13th,2024 *** Grad school.....I'm so proud of you ! Wake upppppp,Its all about the little choices we make everyday. we are almost there. I studied diligently, i will get the best grade! How did we do? It was easy but with a twist it got the best grade :)
+10 days Ntt IIII
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
@@ -10,11 +10,11 @@ Daily Notes
 
 I HIT 2K COMMITS YAY!!!
 
-- Occasion: 24', Started TY yayyyyy
+- Occasion: 24', Started TY yayyyyyyyyy
 - MIRACLE: GOD will provide always 100%.
 
-Day 126. **Good things ahead!** 
-- DAY: Had a good Wednesday, i woke up, made break fast, went to shower, went to the library, studied and became addicted to pomodoro technique, four more days
+Day 125. **Good things ahead!** 
+- DAY: Thursday, i woke up, made break fast, went to shower, went to the library, studied and became addicted to pomodoro technique, four more days
 
 
 
