@@ -1,5 +1,5 @@
 ***Date : December 14,2024 *** Grad school.....I'm so proud of you ! I studied diligently, i will get the best grade! How did we do? It was easy but with a twist it got the best grade :)
-10 days Ntt IIIII
+10 days Ntt IIIIII
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY yayyyyyyyyy
 - MIRACLE: GOD will provide always 100%.
 
-Day 125. **Good things ahead!** 
+Day 126. **Good things ahead!** 
 - DAY: Friday, i woke up, made break fast, went to shower, went to the library, studied and became addicted to pomodoro technique, four more days
 
 
