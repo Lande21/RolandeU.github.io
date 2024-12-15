@@ -16,7 +16,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 126. **Good things ahead!** 
 - DAY: Saturday, i woke up, made break fast, went to shower, studied and became addicted to pomodoro technique, four more days
-hshebdveveveudvevrurvrhr
+
 
 
 3hr work: Daily💚💚💚
