@@ -1,5 +1,5 @@
 ***Date : December 14,2024 *** Grad school.....I'm so proud of you ! I studied diligently, i will get the best grade! How did we do? It was easy but with a twist it got the best grade :)
-10 days Ntt IIIIII
+10 days Ntt IIIIIII
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
