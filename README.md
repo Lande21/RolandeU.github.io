@@ -17,7 +17,7 @@ I HIT 2K COMMITS YAY!!!
 Day 127. **Good things ahead!** 
 - DAY: Sunday, i woke up, made it back, went to ze gidu, studied and became addicted to pomodoro technique just submitted 
 
-
+gotta lock in in nsbe
 
 3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
