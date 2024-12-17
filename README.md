@@ -1,4 +1,4 @@
-***Date : December 16,2024 *** Grad school.....I'm so proud of you ! I studied diligently,  How did we do? It was easy but with a twist it got the best grade :)
+***Date : December 16,2024 *** Grad school.....I'm so proud of you ! I studied diligently,  How did we do? It was easy but with 
 10 days done
 # RolandeU.github.io!
 
