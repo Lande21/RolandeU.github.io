@@ -1,4 +1,4 @@
-***Date : December 17,2024 *** Grad school.....I'm so proud of you !  
+***Date : December 17,2024 *** Grad school.....I'm so proud of you !  We are here
 10 days done
 # RolandeU.github.io!
 
