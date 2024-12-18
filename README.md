@@ -14,8 +14,8 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 128. **Good things ahead!** 
-- DAY: Sunday, i woke up, made it back, went to ze gidu, studied and became addicted to pomodoro technique just submitted 
+Day 129. **Good things ahead!** 
+- DAY: Monday, i woke up, made it back, went to ze gidu, studied and became addicted to pomodoro technique just submitted 
 
 gotta lock in in nsbe
 
