@@ -1,5 +1,5 @@
 ***Date : December 19,2024 *** Grad school.....I'm so proud of you !  We are here AMEN
-10 days done
+10 days 
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
