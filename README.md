@@ -21,6 +21,6 @@ gotta lock in in nsbe
 
 3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
-Enrolled into Google LLM! I completed it!!
+Enrolled into Google LLM! 
 
 I went on a walk 💚💚💚💚💚💚
