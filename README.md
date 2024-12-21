@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 132. **Good things ahead!** 
-- DAY: Friday, i woke up, took a shower, did pilates, interview was among the best, 
+- DAY: Friday, i woke up, took a shower, did 
 
 gotta lock in in nsbe
 
