@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 133. **Good things ahead!** 
-- DAY: Friday, i woke up, took a shower, did pilates , internship and took a bus to mpls
+- DAY: Saturday, i woke up, took a shower, did pilates , internship and took a bus to mpls
 
 gotta lock in in nsbe
 
