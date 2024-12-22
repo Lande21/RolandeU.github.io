@@ -17,7 +17,7 @@ I HIT 2K COMMITS YAY!!!
 Day 133. **Good things ahead!** 
 - DAY: Saturday, i woke up, took a shower, did pilates , internship and took a bus to mpls
 
-gotta lock in in nsbe
+gotta lock in in nsbe, hopefully 
 
 3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
