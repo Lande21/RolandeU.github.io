@@ -1,4 +1,4 @@
-***Date : December 20,2024 *** Grad school.....I'm so proud of you !  We are here AMEN
+***Date : December 21,2024 *** Grad school.....I'm so proud of you !  We are here AMEN
 10 days NTT
 # RolandeU.github.io!
 
