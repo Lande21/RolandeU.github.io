@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 134. **Good things ahead!** 
-- DAY: Sunday, i woke up, went to the cathedral, went to brunch
+- DAY: Sunday, i woke up, went to the cathedral, went to brunch, ate a lot
 
 gotta lock in in nsbe, hopefully 
 
