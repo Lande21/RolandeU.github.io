@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 136. **Good things ahead!** 
-- DAY: Tuesday, i woke up, went to the cathedral, went to brunch, ate a lot, went to see pa, cooked igitoki and sambusa
+- DAY: Tuesday, i woke up, went to the cathedral, went to brunch, ate a lot, went to see pa, cooked igitoki
 
 gotta lock in in nsbe, hopefully 
 
