@@ -1,5 +1,5 @@
 ***Date : December 23,2024 *** Grad school.....I'm so proud of you !  We are here AMEN
-10 days NTT dia s bday, ejo nzajya gusura papa so that i can be with her for Christmas gotta head back after two weeks cant wait to see Ivy in her cute outfit 💕
+10 days NTT dia s bday, ejo Christmas gotta head back after two weeks cant wait to see Ivy in her cute outfit 💕
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
