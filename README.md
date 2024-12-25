@@ -1,5 +1,5 @@
 ***Date : December 24,2024 *** Grad school.....I'm so proud of you !
-will be with pa for Christmas gotta head back after two weeks cant wait to see Ivy in her cute outfit 💕
+will be with pa for Christmas gotta head back after two weeks cant wait to see Ivy in her cute outfit 💕Merr christmas Eve!
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
