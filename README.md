@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 136. **Good things ahead!** 
+Day 137. **Good things ahead!** 
 - DAY: Tuesday, i woke up, went to the cathedral, went to brunch, ate a lot, went to see pa, made lentils and he had leftover rice
 
 gotta lock in in nsbe, hopefully 
