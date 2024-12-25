@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 137. **Good things ahead!** 
-- DAY: Wednesday, i woke up, went to the mall, went to shake shack, mass and bought wine!, ate a lot
+- DAY: Wednesday, i woke up, went to the mall, went to shake shack, mass and bought wine!
 
 gotta lock in in nsbe, hopefully 
 
