@@ -1,4 +1,4 @@
-***Date : December 23,2024 *** Grad school.....I'm so proud of you !  We are here AMEN
+***Date : December 24,2024 *** Grad school.....I'm so proud of you !
 will be with pa for Christmas gotta head back after two weeks cant wait to see Ivy in her cute outfit 💕
 # RolandeU.github.io!
 
