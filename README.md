@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 138. **Good things ahead!** 
-- DAY: , i woke up, went to the mall, went to
+- DAY: Wednesday, Showered, went to the mass and pa didn't even greet the people
 
 gotta lock in in nsbe, hopefully 
 
