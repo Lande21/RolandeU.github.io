@@ -14,8 +14,8 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 137. **Good things ahead!** 
-- DAY: Wednesday, i woke up, went to the mall, went to shake shack, mass and bought wine!
+Day 138. **Good things ahead!** 
+- DAY: , i woke up, went to the mall, went to shake shack, mass and bought wine!
 
 gotta lock in in nsbe, hopefully 
 
