@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 138. **Good things ahead!** 
-- DAY: , i woke up, went to the mall, went to shake shack, mass and bought wine!
+- DAY: , i woke up, went to the mall, went to
 
 gotta lock in in nsbe, hopefully 
 
