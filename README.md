@@ -1,4 +1,4 @@
-***Date : December 25,2024 *** Grad school God's got me.....I'm so proud of you !
+***Date : December 26,2024 *** Grad school God's got me.....I'm so proud of you ! boxing day!
 will be with pa for Christmas gotta head back after two weeks cant wait to see Ivy in her cute outfit 💕Merry christmas! It was ok and home it went amazing but pa dissapp me
 # RolandeU.github.io!
 
