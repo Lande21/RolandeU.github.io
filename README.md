@@ -1,4 +1,4 @@
-***Date : December 26,2024 *** Grad school God's got me.....I'm so proud of you ! boxing day!
+***Date : December 27,2024 *** Grad school God's got me.....I'm so proud of you ! boxing day!
 will be with pa for Christmas gotta head back after two weeks cant wait to see Ivy in her cute outfit 💕Merry christmas! It was ok and home it went amazing but pa said it would be quizing him cause he doesn't know what to ask me
 # RolandeU.github.io!
 
@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 138. **Good things ahead!** 
-- DAY: Thursday, Showered, was a little sad, Mom called me and we talked over an hour they got their xmass gift!!
+- DAY: Friday, Showered, was a little sad, Mom called me and we talked over an hour they got their xmass gift!!
 
 gotta lock in in nsbe, hopefully 
 
