@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 138. **Good things ahead!** 
-- DAY: Friday, Showered, was a little sad, Mom called me and we talked over an hour they got their xmass gift!!
+- DAY: Friday, Showered, Mom called me and we talked over an hour they got their xmass gift!!
 
 gotta lock in in nsbe, hopefully 
 
