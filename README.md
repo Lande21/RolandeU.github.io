@@ -1,5 +1,5 @@
 ***Date : December 27,2024 *** Grad school God's got me.....I'm so proud of you ! boxing day!
-will be with pa for Christmas gotta head back after two weeks cant wait to see Ivy in her cute outfit 💕Merry christmas! It was ok and home it weuld be quizing him cause he doesn't know what to ask me
+will be with pa for Christmas gotta head back after two weeks cant wait to see Ivy in her cute outfit 💕Merry christmas! doesn't know what to ask me
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
