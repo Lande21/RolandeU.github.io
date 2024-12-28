@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 138. **Good things ahead!** 
-- DAY: Friday, Showered, Mom called me and we talked and maria came back from kibeho
+- DAY: Friday, Showered, Mom called me and we talked and maria came back from kibeho, someone impressed me by translating to my native language
 
 gotta lock in in nsbe, hopefully 
 
