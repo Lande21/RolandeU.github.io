@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 138. **Good things ahead!** 
+Day 140. **Good things ahead!** 
 - DAY: Saturday, Showered, Mom called me and we talked and maria came back from kibeho, someone impressed me by translating to my native language
 
 gotta lock in in nsbe, hopefully 
