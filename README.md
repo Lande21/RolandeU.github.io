@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 140. **Good things ahead!** 
-- DAY: Saturday, Showered, Mom called me and we talked a
+- DAY: Saturday, Showered, Mom called me she was a little sick from cold
 
 gotta lock in in nsbe, hopefully 
 
