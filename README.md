@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 14. **Good things ahead!** 
-- DAY: Sunday, Showered, Mom called me she was a little 
+- DAY: Sunday, Showered, Mom called me and i talked to Ivy as well
 
 gotta lock in in nsbe, hopefully 
 
