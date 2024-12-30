@@ -14,8 +14,8 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 140. **Good things ahead!** 
-- DAY: Saturday, Showered, Mom called me she was a little sick from cold but bamusize from expo ! :)
+Day 14. **Good things ahead!** 
+- DAY: Sunday, Showered, Mom called me she was a little sick from cold but bamusize from expo ! :)
 
 gotta lock in in nsbe, hopefully 
 
