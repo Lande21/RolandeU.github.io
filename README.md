@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 14. **Good things ahead!** 
-- DAY: Sunday, Showered, Mom called me and i talked to Ivy as well, she was really cracking up my jokes! i love her real bad! i will be hanging with Chelsy tomorrow! yaya!
+- DAY: Monday, Showered, Mom called me and i talked to Ivy as well, she was really cracking up my jokes! i love her real bad! i will be hanging with Chelsy tomorrow! yaya!
 
 gotta lock in in nsbe, hopefully 
 
