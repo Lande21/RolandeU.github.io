@@ -1,5 +1,4 @@
-***Date : December 30,2024 *** Grad school God's got me.....I'm so proud of you ! new years eve!
-will be with pa for Christmas gotta head back after two weeks cant wait to see Ivy in her cute outfit 💕
+***Date : December 30,2024 *** Grad school God's got me.....I'm so proud of you ! new years eve!💕
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
