@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 14. **Good things ahead!** 
-- DAY: Monday, Showered, Mom called me and i talked to Ivy as well, she was really cracking up my jokes! i love her real bad! i went to cafe latte, got cake for pa, diama picked me up and
+- DAY: Monday, Showered, Mom called me and i talked to Ivy as well, she was really cracking up my jokes! i love her real bad! i went to cafe latte, got cake for pa, diama picked me up and pa got to meet her bf
 
 gotta lock in in nsbe, hopefully 
 
