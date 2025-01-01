@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 14. **Good things ahead!** 
-- DAY: Tuesday, Went to MOA, UO, this is the last day of 2024
+- DAY: Tuesday, Went to MOA, UO, this is the last day of 2024, i am gratefull
 
 gotta lock in in nsbe, hopefully 
 
