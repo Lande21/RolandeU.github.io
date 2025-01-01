@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 14. **Good things ahead!** 
-- DAY: Monday, {;;;;}
+- DAY: Tuesday
 
 gotta lock in in nsbe, hopefully 
 
