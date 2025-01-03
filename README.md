@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 2 of 365. **Brave and thouthful!** 
-- DAY: day, Went to MOA, UO, this is the last day of 2024, i am gratefull, Blessed to be alive
+- DAY: Thursday, Went to MOA, UO, this is the last day of 2024, i am gratefull, Blessed to be alive
 
 gotta lock in in nsbe, hopefully 
 
