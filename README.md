@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 3 of 365. **Brave and thouthful!** 
-- DAY: Friday, Went to HBSS, i am gratefull, Blessed to see another day, my c took me to the hair salon, got my hair washed,
+- DAY: Friday, Went to HBSS, i am gratefull, Blessed to see another day, my c took me to the hair salon, got my hair washed, deep conditioned
 
 gotta lock in in nsbe, hopefully 
 
