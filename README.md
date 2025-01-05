@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 4 of 365. **Brave and thouthful!** 
-- DAY: Saturday, Went to HBSS, i am gratefull, Blessed to see another day, 
+- DAY: Saturday, Went to HBSS, i am gratefull, Blessed to see another day1 chui revenue ici pour mes etudes 
 
 gotta lock in in nsbe, hopefully 
 
