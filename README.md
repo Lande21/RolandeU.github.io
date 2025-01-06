@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 4 of 365. **Brave and thouthful!** 
+Day 5 of 365. **Brave and thouthful!** 
 - DAY: Saturday, Went to HBSS, i am gratefull, Blessed to see another day1 chui revenue ici pour mes etudes 
 
 gotta lock in in nsbe, hopefully 
