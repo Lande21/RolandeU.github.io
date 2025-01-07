@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 5 of 365. **Brave and thouthful!** 
+Day 6 of 365. **Brave and thouthful!** 
 - DAY: Sunday, Went to church, i am gratefull, Blessed to see another day1, my lyft asked me to pray for him, i did, tried river coffee, chui revenue ici pour mes etudes, Hanged out with the girlies and met erica from CR, recorded my video, 
 
 gotta lock in in nsbe, hopefully 
