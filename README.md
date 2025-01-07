@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 6 of 365. **Brave and thouthful!** 
-- DAY: Monday, Went to food pantry, i am gratefull, Blessed to see another day1,Aldi, cleaned and grocery shooped after cooking chicken in the oven, Hanged out with the girlies and met erica from CR, recorded my video, 
+- DAY: Monday, Went to food pantry, i am gratefull, Blessed to see another day1,Aldi, cleaned and grocery shooped after cooking chicken in the oven. met erica from CR, recorded my video, 
 
 gotta lock in in nsbe, hopefully 
 
