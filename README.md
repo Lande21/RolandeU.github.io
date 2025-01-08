@@ -13,8 +13,8 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 6 of 365. **Brave and thouthful!** 
-- DAY: Monday, Went to food pantry, i am gratefull, Blessed to see another day1,Aldi, cleaned and grocery shooped after cooking chicken in the oven. met erica from CR, recorded my video, milestone two finished !!!
+Day 7 of 365. **Brave and thouthful!** 
+- DAY: Tuesday, Went to food pantry, i am gratefull, Blessed to see another day1,Aldi, cleaned and grocery shooped after cooking chicken in the oven. met erica from CR, recorded my video, milestone two finished !!!
 
 gotta lock in in nsbe, hopefully 
 
