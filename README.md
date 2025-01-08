@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 7 of 365. **Brave and thouthful!** 
-- DAY: Tuesday, Went to food pantry, i am gratefull, Blessed to see another day1,Aldi, cleaned and grocery shooped after cooking milestone four finished !!!
+- DAY: Tuesday, Went to food pantry, i am gratefull, Blessed to see another day1,Aldi, cleaned and grocery milestone four finished !!!
 
 gotta lock in in nsbe, hopefully 
 
