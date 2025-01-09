@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 8 of 365. **Brave and thouthful!** 
 - DAY: Wesday, Went to food pantry, Blessed to see another grocery milestone four finished !!!
-- I made lentils, made coconut rice, and it burnt
+- I made lentils, made coconut rice, and it burnt, i need to prepare for interview tomorrow
 
 gotta lock in in nsbe, hopefully 
 
