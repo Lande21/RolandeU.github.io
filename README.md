@@ -13,8 +13,8 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 7 of 365. **Brave and thouthful!** 
-- DAY: Tuesday, Went to food pantry, Blessed to see another grocery milestone four finished !!!
+Day 8 of 365. **Brave and thouthful!** 
+- DAY: day, Went to food pantry, Blessed to see another grocery milestone four finished !!!
 
 gotta lock in in nsbe, hopefully 
 
