@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 9 of 365. **Brave and thouthful!** 
 - DAY: Thursday, Went to food pantry, Blessed to see another grocery milestone four finished !!!
-- I made lentils, made coconut rice, and it burnt, i need to prepare for interview tomorrow, I hit 10K steps, talked with fam
+- I had the interview, talked with fam
 
 gotta lock in in nsbe, hopefully 
 
