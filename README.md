@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 10 of 365. **Brave and thouthful!** 
 - DAY: Fridayday, Went to food pantry, Blessed to see another grocery milestone four finished !!!
-- I had the interview, i hope i get selected for next round, i had a good hair day and me and M went to the center andtalked with fam, it actually went well...and i feel better
+- I had the interview, i hope i get selected for next round, i had a good hair day and me and M went to the center andtalked with fam, it actually went well...and i redid my twists
 rimwe ry'umunani
 gotta lock in in nsbe, hopefully 
 
