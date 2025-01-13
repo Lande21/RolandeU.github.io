@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 12 of 365. **Brave and thouthful!** 
 - DAY: Fridayday, Went to food pantry, Blessed to see another grocery milestone four finished !!!
-- I have some interviews coming up, i hope i get selected for next round, and me and M went to the center and talked with fam yansetse mama hhh, it actually went well...
+- I have some interviews coming up, talked with fam yansetse mama hhh, it actually went well...first day of classes tomorrow!!
 rimwe ry'umunani
 gotta lock in in nsbe, hopefully 
 
