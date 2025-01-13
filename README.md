@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 10 of 365. **Brave and thouthful!** 
+Day 12 of 365. **Brave and thouthful!** 
 - DAY: Fridayday, Went to food pantry, Blessed to see another grocery milestone four finished !!!
 - I have some interviews coming up, i hope i get selected for next round, and me and M went to the center and talked with fam yansetse mama hhh, it actually went well...and i redid my twists
 rimwe ry'umunani
