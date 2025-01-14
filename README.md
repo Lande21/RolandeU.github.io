@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 13 of 365. **Brave and thouthful!** 
-- DAY: day, Went to food pantry, Blessed to see another grocery milestone four finished !!!
+- DAY: Monday, Went to food pantry, Blessed to see another grocery milestone four finished !!!
 - I have some interviews coming up, talked with fam yansetse mama hhh, it actually went well...first day of classes tomorrow!!
 rimwe ry'umunani
 gotta lock in in nsbe, hopefully 
