@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 13 of 365. **Brave and thouthful!** 
 - DAY: Monday, Went to food pantry, work, class!!!
-- I have some interviews coming up, talked with fam yansetse mama ...!!
+- I have some interviews coming up, talked with fam yansetse mama ...hope this week gets easier!!
 rimwe ry'umunani
 gotta lock in in nsbe, hopefully 
 
