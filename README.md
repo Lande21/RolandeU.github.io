@@ -13,8 +13,8 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 14 of 365. **Brave and thouthful!** 
-- DAY: Monday, Went to work, class, and second day of classes done, ate chipotle for dinner
+Day 15 of 365. **Brave and thouthful!** 
+- DAY: Wednesday, Went to work, class, and second day of classes done, ate chipotle for dinner
 - I have some interviews coming up, talked with fam yansetse mama ...hope this week gets easier!!
 rimwe ry'umunani
 gotta lock in in nsbe, hopefully 
