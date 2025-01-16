@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 15 of 365. **Brave and thouthful!** 
-- DAY: Wednesday, Went to work, class, and second day of classes done,
+- DAY: Wednesday, Went to work, class, and sec
 - I have some interviews coming up, talked with fam yansetse mama ...hope this week gets easier!!
 rimwe ry'umunani
 gotta lock in in nsbe, hopefully 
