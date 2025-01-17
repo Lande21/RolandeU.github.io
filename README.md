@@ -13,8 +13,8 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 15 of 365. **Brave and thouthful!** 
-- DAY: Wednesday, Went to work, meeting, class, no class= nap
+Day 16 of 365. **Brave and thouthful!** 
+- DAY: Thursday, Went to work, meeting, class, no class= nap
 - I have some interviews coming up, talked with fam yansetse mama ...hope this week gets easier!!
 rimwe ry'umunani
 gotta lock in in nsbe, hopefully 
