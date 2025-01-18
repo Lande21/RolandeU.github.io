@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 17 of 365. **Brave and thouthful!** 
-- DAY: Friday, Went to yoga, made breakfast, called mom and sis
+- DAY: Friday, Went to yoga, made breakfast, called mom and sis, attended a meeeting and went to c, Aldi came back and made dinner :)
 - I have some interviews coming up, talked with fam yansetse mama ...hope this week gets easier!!
 rimwe ry'umunani
 gotta lock in in nsbe, hopefully 
