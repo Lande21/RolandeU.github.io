@@ -1,4 +1,4 @@
-***Date : January 17th,2025 *** Mid twenties, Grad school God's got me.....I'm so proud of you ! new years eve!💕 day 366/366 day seventeen of 365, May God take the lead
+***Date : January 18th,2025 *** Mid twenties, Grad school God's got me.....I'm so proud of you ! new years eve!💕 day 366/366 day eighteen of 365, May God take the lead
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
