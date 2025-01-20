@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 19 of 365. **Brave and thouthful!** 
-- DAY: Sunday, did laundry and cleaned,meal prepped, ate good
+- DAY: Sunday, did laundry and cleaned,meal prepped, ate good, laundry and submitted!!
 - I have some interviews coming up, talked with fam ...hope this week gets easier!!
 Kabiri ry'umunani
 gotta lock in in nsbe, hopefully 
