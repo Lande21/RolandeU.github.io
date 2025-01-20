@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 18 of 365. **Brave and thouthful!** 
+Day 19 of 365. **Brave and thouthful!** 
 - DAY: Saturday, Went to gutanga, called mom and sis, walked 10k, debriefed with a fav my shaylaaaa tik tok Gone!
 - I have some interviews coming up, talked with fam ...hope this week gets easier!!
 Kabiri ry'umunani
