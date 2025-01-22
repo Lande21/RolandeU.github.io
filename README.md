@@ -14,8 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 20 of 365. **Brave and thouthful!** 
-- DAY: Monday, i made breakyyy, went to the gym , did my routine!
-- I have some interviews coming up, talked with fam ...hope this week gets easier!!
+- DAY: Monday, i made breakyyy, went to the gym
 Kabiri ry'umunani
 gotta lock in in nsbe, hopefully 
 
