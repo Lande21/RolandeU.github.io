@@ -6,7 +6,7 @@ A portfolio GitHub webpage with a few bits of my work throughout my career. And 
 
 Daily Notes
 💚 Imana ninziza Cyane! 
-💚 Starting a Neetcode 3 problems a day journey!
+💚 Starting a Neetcode 3 problems a day journey! you got this RO!
 
 I HIT 2K COMMITS YAY!!!
 
