@@ -13,8 +13,8 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 23 of 365. **Brave and thouthful!** 
-- DAY: Thursdday, i made breakyyy, went to work  the gym
+Day 24 of 365. **Brave and thouthful!** 
+- DAY: Friday, i made breakyyy, went to work  the gym
 Kabiri ry'umunani
 gotta lock in in nsbe, hopefully 
 
