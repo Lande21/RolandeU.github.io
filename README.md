@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 24 of 365. **Brave and thouthful!** 
-- DAY: Friday, i made breakyyy, went to
+- DAY: Friday, i made breakyyy, went to yoga, ivy 7
 Kabiri ry'umunani
 gotta lock in in nsbe, hopefully 
 
