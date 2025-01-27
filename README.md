@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 25 of 365. **Brave and thouthful!** 
-- DAY: Saturday, narwaye cayne
+- DAY: Saturday, narwaye cayne, pp came to visit me
 Kabiri ry'umunani
 gotta lock in in nsbe, hopefully 
 
