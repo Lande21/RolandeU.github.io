@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 29 of 365. **Brave and thouthful!** 
+Day 30 of 365. **Brave and thouthful!** 
 - DAY: Thursday, narwaye cyane, pp came to visit me, i feel like im getting better, im better
 Kabiri ry'umunani
 gotta lock in in nsbe, hopefully 
