@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 31 of 365. **Brave and thouthful!** 
-- DAY: Friday, narwaye cyane, pp came to visit me, i feel like im getting better, i
+- DAY: Friday, narwaye cyane, pp came to visit me, i made mandazi
 Kabiri ry'umunani
 gotta lock in in nsbe, hopefully 
 
