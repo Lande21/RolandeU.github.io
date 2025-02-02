@@ -16,7 +16,7 @@ I HIT 2K COMMITS YAY!!!
 Day 32 of 365. **Brave and thouthful!** 
 - DAY: Saturday, narwaye cyane, pp came to visit me, i made mandazi, and it finished, went to Rochester, MN, AND MT KATO
 Kabiri ry'umunani Not going again!
-gotta lock in in nsbe, hopefully 
+gotta lock in in nsbe, hopefully , nnot locking in
 
 3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
