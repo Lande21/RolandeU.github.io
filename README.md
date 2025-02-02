@@ -1,4 +1,4 @@
-***Date : February 1st,2025 *** Mid twenties, Grad school God's got me.....I'm so proud of you💕 day 31 of 365, May God take the lead
+***Date : February 1st,2025 *** Mid twenties, Grad school God's got me.....I'm so proud of you💕 day 32 of 365, May God take the lead
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 31 of 365. **Brave and thouthful!** 
+Day 32 of 365. **Brave and thouthful!** 
 - DAY: Friday, narwaye cyane, pp came to visit me, i made mandazi, and it finished
 Kabiri ry'umunani
 gotta lock in in nsbe, hopefully 
