@@ -13,8 +13,8 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 32 of 365. **Brave and thouthful!** 
-- DAY: Saturday, narwaye cyane, pp came to visit me, i made mandazi, and it finished, went to Rochester, MN, AND MT KATO
+Day 33 of 365. **Brave and thouthful!** 
+- DAY: Sunday, narwaye cyane, pp came to visit me, i made mandazi, and it finished, went to Rochester, MN, AND MT KATO
 Kabiri ry'umunani Not going again!
 gotta lock in in nsbe, hopefully , nnot locking in
 
