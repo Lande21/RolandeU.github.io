@@ -1,4 +1,4 @@
-***Date : February 4th,2025 *** Mid twenties, Grad school God's got me.....I'm so proud of you💕 day 33 of 365, May God take the lead, you are almost there!
+***Date : February 4th,2025 *** Mid twenties, Grad school God's got me.....I'm so proud of you💕 day 35 of 365, May God take the lead, you are almost there!
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 33 of 365. **Brave and thouthful!** 
+Day 35 of 365. **Brave and thouthful!** 
 - DAY: Sunday, Happy sunday, i went to church, 
 Kabiri ry'umunani Not going again!
 gotta lock in in nsbe, hopefully , nnot locking in
