@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 35 of 365. **Brave and thouthful!** 
-- DAY: Tuesday, Happy sunday, i went to church, 
+- DAY: Tuesday, Happy sunday, i went to work, 
 Kabiri ry'umunani Not going again!
 gotta lock in in nsbe, hopefully , nnot locking in
 
