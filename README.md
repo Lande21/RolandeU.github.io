@@ -1,4 +1,4 @@
-***Date : February 2st,2025 *** Mid twenties, Grad school God's got me.....I'm so proud of you💕 day 33 of 365, May God take the lead, you are almost there!
+***Date : February 4th,2025 *** Mid twenties, Grad school God's got me.....I'm so proud of you💕 day 33 of 365, May God take the lead, you are almost there!
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
