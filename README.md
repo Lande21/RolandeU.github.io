@@ -13,7 +13,7 @@ I HIT 2K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 35 of 365. **Brave and thouthful!** 
+Day 36 of 365. **Brave and thouthful!** 
 - DAY: Tuesday, Happy sunday, i went to work, cycling class, HIIT, and TOT
 Kabiri ry'umunani Not going again!
 gotta lock in in nsbe, hopefully , nnot locking in
