@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 38 of 365. **Brave and thouthful!** 
-- DAY: Friday, Happy Friday, i went to yoga, gym
+- DAY: Friday, Happy Friday, i went to yoga, gym, p for k and preparing to go to camp
 Kabiri ry'umunani Not going again!
 gotta lock in in nsbe, hopefully , nnot locking in
 
