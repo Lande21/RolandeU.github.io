@@ -1,4 +1,4 @@
-***Date : February 8th,2025 *** Mid twenties, Grad school God's got me.....I'm so proud of you💕 day 38 of 365, May God take the lead, you are almost there!
+***Date : February 8th,2025 *** Mid twenties, Grad school God's got me.....I'm so proud of you💕 day 39 of 365, May God take the lead, you are almost there!
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 39 of 365. **Brave and thouthful!** 
-- DAY: Friday, Happy Friday, i went to yoga, gym, p for k and preparing to go to camp
+- DAY: Saturday , Happy Friday, i went to yoga, gym, p for k and preparing to go to camp
 Kabiri ry'umunani Not going again!
 gotta lock in in nsbe, hopefully , nnot locking in
 
