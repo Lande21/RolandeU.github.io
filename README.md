@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 39 of 365. **Brave and thouthful!** 
-- DAY: Saturday , Happy weekend, i went to camp gym, p for k and preparing to go to camp
+- DAY: Saturday , Happy weekend, i went to camp gym, p for k and camp
 Kabiri ry'umunani Not going again!
 gotta lock in in nsbe, hopefully , nnot locking in
 
