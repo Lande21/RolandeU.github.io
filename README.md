@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 40 of 365. **Brave and thouthful!** 
-- DAY: monday , day i, i went to camp 
+- DAY: tuesday , day i, i went to camp 
 Kabiri ry'umunani Not going again!
 gotta lock in in nsbe, hopefully , nnot locking in
 
