@@ -15,8 +15,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 40 of 365. **Brave and thouthful!** 
 - DAY: tuesday , day two but not the best, i went to camp 
-Kabiri ry'umunani Not going again!
-gotta lock in in nsbe, hopefully , nnot locking in
+Kabiri ry'umunani Not going again!, hopefully , nnot locking in
 
 3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
