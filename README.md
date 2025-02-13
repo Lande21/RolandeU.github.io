@@ -19,6 +19,6 @@ Kabiri ry'umunani Not going again!, hopefully , nnot locking in
 
 3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
-Enrolled into Google LLM! 
+Enrolled i
 
 I went on a walk 💚💚💚💚💚💚
