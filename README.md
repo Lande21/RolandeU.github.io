@@ -15,7 +15,7 @@ I HIT 2K COMMITS YAY!!!
 
 Day 42 of 365. **Brave and thouthful!** 
 - DAY: Wednesday , day two but not the best, i went to camp 
-Kabiri ry'umunani Not going again!, hopefully , nnot locking in
+Kabiri ry'umunani Not going again!, hopefully ,
 
 3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
