@@ -14,7 +14,7 @@ I HIT 2K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 42 of 365. **Brave and thouthful!** 
-- DAY: Wednesday , day two but not the best, i went to camp 
+- DAY: Wednesday , day three but not bad, i went to camp 
 Kabiri ry'umunani Not going again!, hopefully ,
 
 3hr work: Daily💚💚💚
