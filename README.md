@@ -13,7 +13,7 @@ I HIT 3K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 42 of 365. **Brave and thouthful!** 
+Day 44 of 365. **Brave and thouthful!** 
 - DAY: Wednesday , day three but not bad, i went to camp 
 
 3hr work: Daily💚💚💚
