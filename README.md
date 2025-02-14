@@ -14,7 +14,7 @@ I HIT 3K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 44 of 365. **Brave and thouthful!** 
-- DAY: Wednesday , day three but not bad, i went to camp 
+- DAY: Wednesday , 
 
 3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
