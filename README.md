@@ -14,7 +14,7 @@ I HIT 3K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 46 of 365. **Brave and thouthful!** 
-- DAY: Saturday , Went to Yoga, ate, called mom and ivy, had an interview
+- DAY: Saturday , Went to Yoga, ate, called mom and ivy, 
 
 3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
