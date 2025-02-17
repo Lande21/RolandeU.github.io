@@ -14,7 +14,7 @@ I HIT 3K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 47 of 365. **Brave and thouthful!** 
-- DAY: Sunday,went to church, did almost everything on my to do list
+- DAY: Sunday,went to church, did almost everything on my to do list, new video is out!!
 
 3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
