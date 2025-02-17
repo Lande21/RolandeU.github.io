@@ -14,7 +14,7 @@ I HIT 3K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 47 of 365. **Brave and thouthful!** 
-- DAY: Saturday, sledding, gs, kt and ant
+- DAY: Sunday, sledding, gs, kt and ant
 
 3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
