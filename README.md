@@ -1,4 +1,4 @@
-***Date : February 1th,2025 *** Mid twenties, Grad school: God's got me.....I'm so proud of you💕 day 49 of 365, May God take the lead.
+***Date : February 18th,2025 *** Mid twenties, Grad school: God's got me.....I'm so proud of you💕 day 49 of 365, May God take the lead.
 # RolandeU.github.io!
 
 A portfolio GitHub webpage with a few bits of my work throughout my career. And daily journal logs....
@@ -13,7 +13,7 @@ I HIT 3K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 48 of 365. **Brave and thouthful!** 
+Day 49 of 365. **Brave and thouthful!** 
 - DAY: Monday,went to church, i am happy and thriving
 
 3hr work: Daily💚💚💚
