@@ -14,7 +14,7 @@ I HIT 3K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 49 of 365. **Brave and thouthful!** 
-- DAY: Tuesday,went to church, i am happy and thriving
+- DAY: Tuesday,went to work,, i am happy and thriving
 
 3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
