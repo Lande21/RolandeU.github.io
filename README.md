@@ -20,4 +20,4 @@ Day 54 of 365. **Brave and thouthful!**
 God loves me dearly, May He guide all of  us!
 
 
-I went on a walk 💚💚💚💚💚💚
+I went on 💚💚💚💚💚💚
