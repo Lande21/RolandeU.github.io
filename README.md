@@ -17,7 +17,4 @@ Day 54 of 365. **Brave and thouthful!**
 - DAY: Saturday ,went to work,talked to Ivy, I rebuke it, All will be well, i am happy and thriving, we presented
 
 3hr work: Daily💚💚💚
-God loves me dearly, May He guide all of  us!
-
-
-I went on 💚💚💚💚💚💚
+God loves me dearly, 💚💚💚💚💚💚
