@@ -14,7 +14,7 @@ I HIT 3K COMMITS YAY!!!
 - MIRACLE: GOD will provide always 100%.
 
 Day 54 of 365. **Brave and thouthful!** 
-- DAY: Wednesday,went to work,talked to Ivy, I rebuke it, All will be well, i am happy and thriving, we presented
+- DAY: Saturday ,went to work,talked to Ivy, I rebuke it, All will be well, i am happy and thriving, we presented
 
 3hr work: Daily💚💚💚
 God loves me dearly, May He guide all of  us!
