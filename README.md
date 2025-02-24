@@ -10,7 +10,7 @@ Daily Notes
 
 I HIT 3K COMMITS YAY!!!
 
-- Occasion: 24', Started TY 
+l
 - MIRACLE: GOD will provide always 100%.
 
 Day 54 of 365. **Brave and thouth!** 
