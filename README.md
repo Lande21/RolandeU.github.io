@@ -13,7 +13,7 @@ I HIT 3K COMMITS YAY!!!
 - Occasion: 24', Started TY 
 - MIRACLE: GOD will provide always 100%.
 
-Day 54 of 365. **Brave and thouthful!** 
+Day 54 of 365. **Brave and thouth!** 
 - DAY: Saturday ,went to work,talked to Ivy, I rebuke it, All will be well, i am happy and thriving, we presented
 
 3hr work: Daily💚💚💚
