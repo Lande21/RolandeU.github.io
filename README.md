@@ -14,7 +14,7 @@ l
 - MIRACLE: GOD will provide always 100%.
 
 Day 55 of 365. **Brave and thouth!** 
-- DAY: Monday ,went to work,talked to Dia, Had a great time watching, All will be well, i am happy and thriving, we presented
+- DAY: Monday ,went to work,talked to Dia, Had a great time watching A & P, All will be well, i am happy and thriving
 
 3hr work: Daily💚💚💚
 God is great💚💚💚💚💚💚
