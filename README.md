@@ -13,7 +13,7 @@ I HIT 3K COMMITS YAY!!!
 l
 - MIRACLE: GOD will provide always 100%.
 
-Day 55 of 365. **Brave and thouth!** 
+Day 55 of 365. **Brave and THOUGHTFUL!** 
 - DAY: Monday ,went to work,talked to Dia, Had a great time watching A & P, All will be well, i am happy and thriving
 
 3hr work: Daily💚💚💚
