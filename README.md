@@ -14,7 +14,7 @@ l
 - MIRACLE: GOD will provide always 100%.
 
 Day 57 of 365. **Brave and THOUGHTFUL!** 
-- DAY: Thursday, talked to Dia, Had a great time editing, i am happy and thriving, 
+- DAY: Thursday, went to work, tabling in the UDH, had lunch,Had a great time editing, i am happy and thriving, 
 
 3hr work: Daily💚💚💚
 God is great💚💚💚💚💚💚
