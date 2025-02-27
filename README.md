@@ -14,7 +14,7 @@ l
 - MIRACLE: GOD will provide always 100%.
 
 Day 56 of 365. **Brave and THOUGHTFUL!** 
-- DAY: Wednesday, talked to Dia, Had a great time watching A & P, i am happy and thriving, i made dinner
+- DAY: Wednesday, talked to Dia, Had a great time watching A & P, i am happy and thriving, 
 
 3hr work: Daily💚💚💚
 God is great💚💚💚💚💚💚
