@@ -13,7 +13,7 @@ I HIT 3K COMMITS YAY!!!
 l
 - MIRACLE: GOD will provide always 100%.
 
-Day 57 of 365. **Brave and THOUGHTFUL!** 
+Day 58 of 365. **Brave and THOUGHTFUL!** 
 - DAY: Thursday, went to work, tabling in the UDH, had lunch,Had a great time editing, went to the gym and i am happy and thriving,
 3hr work: Daily💚💚💚
 God is great💚💚💚💚💚💚
