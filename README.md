@@ -14,6 +14,6 @@ l
 - MIRACLE: GOD will provide always 100%.
 
 Day 58 of 365. **Brave and THOUGHTFUL!** 
-- DAY: Friday, went to yoga, had lunch,Had a great time editing, went to the gym and i am happy and thriving
+- DAY: Friday, went to yoga, first hockey gameHad a great time editing, went to the gym and i am happy and thriving
 3hr work: Daily💚💚💚
 God is great💚💚💚💚💚💚
