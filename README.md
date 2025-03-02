@@ -14,6 +14,6 @@ l
 - MIRACLE: GOD will provide always 100%.
 
 Day 60 of 365. **Brave and THOUGHTFUL!** 
-- DAY: Saturday, went to flex, first hockey gameHad a, went to the gym and i am happy and thriving
+- DAY: Saturday, went to flex,i went to the gym and i am happy and thriving
 3hr work: Daily💚💚💚
 God is great💚💚💚💚💚💚
